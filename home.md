@@ -1,4 +1,2 @@
-<!-- TITLE: Home -->
-<!-- SUBTITLE: A quick summary of Home -->
-
-# Welcome to the Empath Wiki
+<!-- TITLE: Empath Wiki -->
+<!-- SUBTITLE: Resources for empaths all over the world -->

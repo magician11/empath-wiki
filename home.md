@@ -9,6 +9,6 @@ This site is collation of the knowlege and wisdom from the empaths in the [Empat
 
 You need to be part of this empath group to contribute content to this wiki. You can find more information on joining this group [here](https://goforself.me/a-free-online-empath-support-group/).
 
-# I want to get in touch with someone about this site.
+# Who can I contact for more info?
 
 Contact details for Andrew can be found [here](https://goforself.me/connect-now/).

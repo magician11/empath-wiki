@@ -15,3 +15,5 @@ You need to first join https://goforself.me/a-free-online-empath-support-group/,
 Total tests taken by empaths: 5
 
 ![Empath Personality Types](/uploads/empath-personality-types.png "Empath Personality Types")
+
+Last updated: 19th August 2018

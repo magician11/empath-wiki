@@ -20,7 +20,7 @@ You need to first join https://goforself.me/a-free-online-empath-support-group/,
 
 ## Results to date
 
-Total tests taken by empaths: 5
+Total tests taken by empaths: 7
 
 ![Empath Personality Types](/uploads/empath-personality-types.png "Empath Personality Types")
 

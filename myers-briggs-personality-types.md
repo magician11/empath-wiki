@@ -6,7 +6,7 @@
 * https://www.16personalities.com/ 
 
 
-## Where can I contribute my answer to these test results?
+## Where can I contribute my personality test result?
 
 You need to first join https://goforself.me/a-free-online-empath-support-group/, and once in, we'll send you the submission link in there.
 

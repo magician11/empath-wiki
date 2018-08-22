@@ -12,4 +12,4 @@
 >  
 > 
 > The mirror neurons system can be over or under-active, depending on a myriad of factors (Mbemba, Marte & Christian, 2007).   One extreme example of having an overactive mirror system is a condition known as ‘mirror-touch synesthesia’. Synesthesia is where sensations that normally are experienced separately get blended. In mirror-touch synesthesia, when another person gets touched, the synaesthete feels a touch on their body.  On the other end of the spectrum, some suggest that under-activity of the mirror neuron system is linked to autism. 
-- excerpts taken from http://www.eggshelltherapy.com/empath
+Taken from http://www.eggshelltherapy.com/empath

@@ -16,7 +16,7 @@ We were curious if empaths were more likely to be one personality type over anot
 
 ## Where can I contribute my personality test result?
 
-You need to first join https://goforself.me/a-free-online-empath-support-group/, and once in, we'll send you the submission link in there.
+You need to first join https://empath.community, and once in, we'll send you the submission link in there.
 
 ## Results to date
 

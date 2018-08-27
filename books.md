@@ -20,3 +20,11 @@ This book is to understand, accept and heal our bad attachments created during o
 I love Erich Fromm's books. He was social psychologist, psychoanalyst, sociologist, humanistic philosopher, and democratic socialist. His books about philosophical and sociological aspects of humanity (freedom, fear, to be and to have, democracy) are fantastic. This book is particularly special because he is not referring to love as romantic relationship (although this is also part of loving and it is including in the book) but what love is for us as human beings and how it represents to us: the love to a higher being, parenthood, brotherhood, community and why loving is an art and why it needs practice and study to be mastered.
 
 [Amazon](https://www.amazon.com/Art-Loving-Erich-Fromm-ebook/dp/B00BBPWAJC)
+
+## Black Hole Focus
+By Isaiah Hankel. This book is a pearl. It gave me the structure and planning I required in my life. It gave me the tools to understand what I have to offer, what I want to learn and how and where to direct myself to, to draw my path. Thanks to this book I do my principles/intention/action board by the end of each year.
+https://www.amazon.com/Black-Hole-Focus-Intelligent-Powerful-ebook/dp/B00JYC1EQ4/ref=sr_1_1?s=books&ie=UTF8&qid=1535354886&sr=1-1&keywords=black+hole+focus
+
+Spark was here...
+
+

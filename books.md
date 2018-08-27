@@ -23,11 +23,11 @@ I love Erich Fromm's books. He was social psychologist, psychoanalyst, sociologi
 
 ## Black Hole Focus: How Intelligent People Can Create a Powerful Purpose for Their Lives
 By Isaiah Hankel. This book is a pearl. It gave me the structure and planning I required in my life. It gave me the tools to understand what I have to offer, what I want to learn and how and where to direct myself to, to draw my path. Thanks to this book I do my principles/intention/action board by the end of each year.
-https://www.amazon.com/Black-Hole-Focus-Intelligent-Powerful-ebook/dp/B00JYC1EQ4/ref=sr_1_1?s=books&ie=UTF8&qid=1535354886&sr=1-1&keywords=black+hole+focus
+[Amazon](https://www.amazon.com/Black-Hole-Focus-Intelligent-Powerful-ebook/dp/B00JYC1EQ4/ref=sr_1_1?s=books&ie=UTF8&qid=1535354886&sr=1-1&keywords=black+hole+focus)
 
 ##  Clean (Program)
 By Dr. Alejandro Junger. This was the book that pushed my health and fitness for better, and introduced me to health and fitness literature (I love reading about health and fitness). I read it and did my first detox diet 5 years ago. This detox program became my yearly ritual.
-https://www.amazon.com/Clean-Expanded-Revolutionary-Program-Restore-ebook/dp/B007MAU5UG/ref=sr_1_2?s=books&ie=UTF8&qid=1535356397&sr=1-2&keywords=clean+program
+[Amazon](https://www.amazon.com/Clean-Expanded-Revolutionary-Program-Restore-ebook/dp/B007MAU5UG/ref=sr_1_2?s=books&ie=UTF8&qid=1535356397&sr=1-2&keywords=clean+program)
 
 
 

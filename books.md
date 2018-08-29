@@ -38,3 +38,9 @@ By Erich Fromm. A philosophical, psichological and sociological analysis of the 
 
 [Amazon](https://www.amazon.com/Heart-Man-Genius-Good-Evil-ebook/dp/B0049B30WG/ref=sr_1_1?s=books&ie=UTF8&qid=1535356801&sr=1-1&keywords=erich+fromm+the+heart+of+man)
 
+### Man's Search for Meaning
+By Viktor E. Frankl
+
+Viktor E. Frankl is a brilliant psychiatrist that survived the Holocaust. He recalls his experiences and profound thoughts on suffering. He finds that people who find purpose and meaning in their suffering can withstand anything. This book inspired me in so many ways, it’s hard to even put it all into words. For anyone wanting to find purpose in their lives, this is the book to read. It’s just the thing needed to ask yourself the big questions. The prisoners Frankl saw that had nothing to live for, were the first to die. Those that saw something bigger than themselves, kept fighting. It’s not so different in our own lives today, so many slowly dying in front of the tv, in a job they hate, waiting for something to change. Be the change in your life, the power is yours. This book is exactly what you need to inspire profound change.
+
+[Amazon](https://www.amazon.com/Mans-Search-Meaning-Viktor-Frankl/dp/080701429X)

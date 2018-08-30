@@ -42,3 +42,15 @@ By Viktor E. Frankl
 Viktor E. Frankl is a brilliant psychiatrist that survived the Holocaust. He recalls his experiences and profound thoughts on suffering. He finds that people who find purpose and meaning in their suffering can withstand anything. This book inspired me in so many ways, it’s hard to even put it all into words. For anyone wanting to find purpose in their lives, this is the book to read. It’s just the thing needed to ask yourself the big questions. The prisoners Frankl saw that had nothing to live for, were the first to die. Those that saw something bigger than themselves, kept fighting. It’s not so different in our own lives today, so many slowly dying in front of the tv, in a job they hate, waiting for something to change. Be the change in your life, the power is yours. This book is exactly what you need to inspire profound change.
 
 [Amazon](https://www.amazon.com/Mans-Search-Meaning-Viktor-Frankl/dp/080701429X)
+
+# Fiction
+
+## The Bell Jar
+By Sylvia Plath
+
+[Google Books](https://books.google.co.uk/books/about/The_Bell_Jar.html?id=1cL81MLdPWcC&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
+
+## Never Let Me Go
+By Kazuo Ishiguro
+
+[Google Books](https://books.google.co.uk/books/about/Never_Let_Me_Go.html?id=JAzxznMKiq4C&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)

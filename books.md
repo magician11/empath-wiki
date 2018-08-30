@@ -54,3 +54,18 @@ By Sylvia Plath
 By Kazuo Ishiguro
 
 [Google Books](https://books.google.co.uk/books/about/Never_Let_Me_Go.html?id=JAzxznMKiq4C&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
+
+## Life Of Pi
+By Yann Martel
+
+[Google Books](https://books.google.co.uk/books/about/Life_Of_Pi.html?id=XJNFfSzGD0AC&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
+
+## The Other Hand
+By Chris Cleave
+
+[Google Books](https://books.google.co.uk/books/about/The_Other_Hand.html?id=p2mpvegbw0AC&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
+
+## Geek Love
+By Katherine Dunn
+
+[Google Books](https://books.google.co.uk/books/about/Geek_Love.html?id=efJGBQAAQBAJ&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)

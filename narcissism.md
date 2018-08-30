@@ -63,3 +63,7 @@ Asking them to consider their reputation can make them think more carefully than
 A movie about a child who is born a psychopath. His sweet, good hearted mother does whatever she can to raise him well, yet she ends up having to deal with a huge amount of guilt and shame. A theme in the movie is that bad kids are the parent's fault, when in this case it clearly is not.
 
 [Rotten Tomatoes](https://www.rottentomatoes.com/m/we_need_to_talk_about_kevin/)
+
+# Traits
+
+- Narcissists are excellent at hiding that they are a narcissist. They can, for instance, create so much drama around them, that untargeted people mistakenly assume the "bad" person is someone else.

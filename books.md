@@ -15,6 +15,13 @@ This book is to understand, accept and heal our bad attachments created during o
 
 [Amazon](https://www.amazon.com/Healing-Your-Aloneness-Finding-Wholeness-ebook/dp/B009R4P5G4)
 
+## Going to Pieces without Falling Apart: A Buddhist Perspective on Wholeness
+By Mark Epstein
+
+When I had a spiritual awakening it was recommended to me by someone who also had the same kind of awakening as I did. (He referred to it as a kundalini awakening) This book felt like it was written just for me. It’s about your “fake” life that you think is your real sell, crumbling (which is terrifying) but discovering your true self underneath. I’ve read some of his other books too but they weren’t as profound for me as this one.
+
+[Amazon](https://www.amazon.com/Going-Pieces-without-Falling-Apart/dp/0767902351)
+
 ## The Art of Loving
 By Erich Fromm.
 I love Erich Fromm's books. He was social psychologist, psychoanalyst, sociologist, humanistic philosopher, and democratic socialist. His books about philosophical and sociological aspects of humanity (freedom, fear, to be and to have, democracy) are fantastic. This book is particularly special because he is not referring to love as romantic relationship (although this is also part of loving and it is including in the book) but what love is for us as human beings and how it represents to us: the love to a higher being, parenthood, brotherhood, community and why loving is an art and why it needs practice and study to be mastered.

@@ -43,6 +43,11 @@ Viktor E. Frankl is a brilliant psychiatrist that survived the Holocaust. He rec
 
 [Amazon](https://www.amazon.com/Mans-Search-Meaning-Viktor-Frankl/dp/080701429X)
 
+## The Empath's Survival Guide: Life Strategies for Sensitive People
+By Judith Orloff
+
+[Amazon](https://www.amazon.com/Empaths-Survival-Guide-Strategies-Sensitive/dp/1622036573)
+
 # Fiction
 
 ## The Bell Jar

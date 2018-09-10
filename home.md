@@ -13,6 +13,7 @@ It's a wiki, so it's growing every day.
 You can search for something in the search bar above, or for starters have a look at the info on:
 
 - [books](/books) recommended by empaths
+- [TV and movies](https://empath.wiki/tv-and-movies) related to empaths
 - the current [science](/science) on empaths
 
 # How do I contribute?

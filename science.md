@@ -21,3 +21,7 @@ Quoted from http://www.eggshelltherapy.com/empath
 > Empathic intuition developed out of a precarious environment is often coupled with sensory high alert and anxiety. This state, known as hyper-vigilance, is a result of the neuro-pathways that have been formed in the brain. The traumatised empaths are wired to constantly scan the environment for anything or anyone that could be a potential threat.  Even realistically, as grown-ups they are no longer facing any danger, whenever there are changes in the atmosphere of a room or the emotional tone of other people, they still have an automatic and visceral fight-or-flight reactions, such as tightening of the chest, increased heartbeat, and a feeling that ‘something ought to be done’. In the long run, such physiological stress could lead to symptoms such as adrenal fatigue, chronic fatigue, and depression. 
 
 Quoted from http://www.eggshelltherapy.com/empath
+
+![Mentally Unstable Parent Children Family Geekdawson 5 B 9237329 A 4 Ec 700](/uploads/mentally-unstable-parent-children-family-geekdawson-5-b-9237329-a-4-ec-700.jpg "Mentally Unstable Parent Children Family Geekdawson 5 B 9237329 A 4 Ec 700")
+
+-- taken from https://www.boredpanda.com/mentally-unstable-parent-children-family-geekdawson/

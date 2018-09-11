@@ -24,4 +24,4 @@ Quoted from http://www.eggshelltherapy.com/empath
 
 ![Mentally Unstable Parent Children Family Geekdawson 5 B 9237329 A 4 Ec 700](/uploads/mentally-unstable-parent-children-family-geekdawson-5-b-9237329-a-4-ec-700.jpg "Mentally Unstable Parent Children Family Geekdawson 5 B 9237329 A 4 Ec 700")
 
--- taken from https://www.boredpanda.com/mentally-unstable-parent-children-family-geekdawson/
+From https://www.boredpanda.com/mentally-unstable-parent-children-family-geekdawson/

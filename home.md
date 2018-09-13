@@ -1,5 +1,5 @@
 <!-- TITLE: Empath Wiki -->
-<!-- SUBTITLE: Resources for empaths all over the world! -->
+<!-- SUBTITLE: Resources for empaths all over the world -->
 > "It hasn't been easy to be who we are, but being who we are has given us access to hidden places of the human heart and beyond... either for good and bad. We are in the hope to find the proper way to handle and use it for goodness"
 
 # What is this site?

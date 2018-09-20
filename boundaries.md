@@ -14,8 +14,7 @@
 [Taken from an image on Facebook](https://cdn.discordapp.com/attachments/399465003855380480/484774942341332992/image0.jpg)
 
 # Who to share your struggles with
-> Share with people who've earned the right to hear your story.
-> Dr. Brené Brown
+> Share with people who've earned the right to hear your story. - Dr. Brené Brown
 
 [video](https://www.youtube.com/watch?v=s8Pp7QB6GrE){.youtube}
 

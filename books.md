@@ -55,6 +55,13 @@ By Judith Orloff
 
 [Amazon](https://www.amazon.com/Empaths-Survival-Guide-Strategies-Sensitive/dp/1622036573)
 
+## Tuesdays with Morrie
+By Mitch Albom
+
+>I agree with Albom. In the end, all that matters is that we loved each other. That thought comforts me when I am agonizing over all the little stressful things in my life. I have to remind myself that I have people to love, they love me and that matters so much more than the mistakes we make.
+
+[Goodreads](https://www.goodreads.com/book/show/6900.Tuesdays_with_Morrie)
+
 # Fiction
 
 ## The Bell Jar

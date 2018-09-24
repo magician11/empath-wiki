@@ -18,5 +18,6 @@
 
 [video](https://www.youtube.com/watch?v=s8Pp7QB6GrE){.youtube}
 
-> the ppl who shld feel "shamed" often don't and those of us who have no reason to feel ashamed often feel it deeply enough to be significantly "damaged" by it - empath member
+From a member in our group..
+> the ppl who shld feel "shamed" often don't and those of us who have no reason to feel ashamed often feel it deeply enough to be significantly "damaged" by it
 

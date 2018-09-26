@@ -1,4 +1,4 @@
-<!-- TITLE: Boundaries -->
+<!-- TITLE: Protection -->
 <!-- SUBTITLE: One of the most important things every empath should learn and practice -->
 
 # What do boundaries feel like?
@@ -21,3 +21,5 @@
 From a member in our group..
 > the ppl who shld feel "shamed" often don't and those of us who have no reason to feel ashamed often feel it deeply enough to be significantly "damaged" by it
 
+# Your environment
+We slip in into the company we keep. We contract the feelings and thoughts of the people around us.

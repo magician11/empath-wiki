@@ -23,6 +23,6 @@ In terms of seeing parallels with empaths, I'd mainly just recommend season 1 to
 
 # Podcasts
 
-## Invisibilia (NPR) Entanglement episode
+## Invisibilia by NPR, Entanglement episode
 
 [on iTunes](https://itunes.apple.com/us/podcast/invisibilia/id953290300?mt=2&i=1000334423876)

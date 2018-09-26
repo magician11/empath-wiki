@@ -1,5 +1,5 @@
-<!-- TITLE: TV And Movies -->
-<!-- SUBTITLE: TV and Movies that explore empaths -->
+<!-- TITLE: Media -->
+<!-- SUBTITLE: Media that explore empaths -->
 
 # TV Series
 
@@ -20,3 +20,9 @@ The story of Sense8 is about the psychic connection of eight strangers from diff
 In terms of seeing parallels with empaths, I'd mainly just recommend season 1 to get a feel for how the sensates start discovering their ability to connect with each other. Season 2 seems to have more of a focus on the LGBT community, and a hollywood spin on fighting an organisation that is trying to suppress and wipe out this other species of human (sensates).
 
 [Wikipedia](https://en.wikipedia.org/wiki/Sense8)
+
+# Podcasts
+
+## Invisibilia (NPR) Entanglement episode
+
+[on iTunes](https://itunes.apple.com/us/podcast/invisibilia/id953290300?mt=2&i=1000334423876)

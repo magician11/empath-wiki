@@ -1,5 +1,4 @@
 <!-- TITLE: Personality Types -->
-<!-- SUBTITLE: Test results for empaths -->
 
 ## What is this?
 

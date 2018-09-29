@@ -19,11 +19,9 @@ You need to first join https://empath.community, and once in, we'll send you the
 
 ## Results to date
 
-Total tests taken by empaths: 7
+![Personality Types](/uploads/personality-types.png "Personality Types")
 
-![Empath Personality Types](/uploads/empath-personality-types.png "Empath Personality Types")
-
-Last updated: 19th August 2018
+Last updated: 29th September 2018
 
 ## Other notes
 

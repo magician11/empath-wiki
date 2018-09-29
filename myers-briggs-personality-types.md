@@ -1,4 +1,4 @@
-<!-- TITLE: Myers Briggs Personality Types -->
+<!-- TITLE: Personality Types -->
 <!-- SUBTITLE: Test results for empaths -->
 
 ## What is this?
@@ -25,3 +25,7 @@ Total tests taken by empaths: 7
 ![Empath Personality Types](/uploads/empath-personality-types.png "Empath Personality Types")
 
 Last updated: 19th August 2018
+
+## Other notes
+
+Some people are possibly better described as an extroverted introvert: https://introvertdear.com/news/extroverted-introvert-signs/

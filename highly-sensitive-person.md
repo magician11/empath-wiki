@@ -14,8 +14,8 @@ This article might help explain this a bit more https://goforself.me/am-i-an-emp
 
 # Articles
 
-* Help for the HSP https://www.bphope.com/help-for-the-highly-sensitive-person/
-* Highly Sensitive Person Traits That Create More Stress : https://www.verywellmind.com/highly-sensitive-persons-traits-that-create-more-stress-4126393
+* [Help for the HSP](https://www.bphope.com/help-for-the-highly-sensitive-person/)
+* [Highly Sensitive Person Traits That Create More Stress](https://www.verywellmind.com/highly-sensitive-persons-traits-that-create-more-stress-4126393)
 # Groups
 
 There are a bunch of groups for HSPs on [Facebook](https://www.facebook.com/search/str/highly+sensitive+people/keywords_groups).

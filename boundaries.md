@@ -32,4 +32,4 @@ We slip in into the company we keep. We contract the feelings and thoughts of th
 - Cross your arms against your chest
 - Say some version of either "may only those pass who come w love" or "you cannot pass except w love"...
 
-[video](https://giphy.com/gifs/njYrp176NQsHS/html5){.video}
+![Latest](/uploads/latest "Latest")

@@ -9,7 +9,8 @@
 
 ## Clearing a space/room
 
-You can things via intuition.
+You can clear things via intuition:
+
 - What do you feel, automatically without overthinking it too much, would make the space feel cleared and refreshed?
 - What actions or words would help you bring tha clarity and freshness to the space, just from the top of your imagination?
 

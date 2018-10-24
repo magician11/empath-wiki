@@ -2,6 +2,9 @@
 <!-- SUBTITLE: Resources on healing -->
 
 
+# Anxiety
+
+Try colouring in :)
 # Time
 
 Time does heal. If you're feeling awful, give it a few days before you do anything drastic about it. It's amazing how much can shift from creating some time and space for yourself. Things do pass.

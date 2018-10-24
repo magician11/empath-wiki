@@ -2,6 +2,10 @@
 <!-- SUBTITLE: Resources on healing -->
 
 
+
+# Talk to someone
+
+Someone that can just be present and be there for you, without judgement and advice. Just being there for you.
 # Anxiety
 
 Try colouring in :)

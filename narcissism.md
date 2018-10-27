@@ -22,6 +22,8 @@ Some things that stood out..
 
 >When looking at fearful faces, donors showed a greater response in their right amygdala than a control group. Separately, the researchers found that their right amygdalas were, on average, 8 percent larger than those of the control group. Similar studies done previously on psychopathic subjects had found the opposite: The amygdalas in psychopathic brains are smaller and activated less than those in controls while reacting to frightened faces.
 
+[source](https://www.nationalgeographic.com/magazine/2017/08/science-good-evil-charlottesville/)
+
 ## THE PSYCHOPATH - The Mask of Sanity
 
 > 4 percent of the people on this planet have no conscience.  The presence or absence of conscience is a deep human division, arguably more significant than intelligence, race, or even gender.  What distinguishes these people from the rest of us is an utterly empty hole in the psyche, where there should be the most evolved of all humanizing functions.

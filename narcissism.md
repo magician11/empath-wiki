@@ -3,6 +3,17 @@
 
 It's an unfortunate and common pairing for empaths to get involved in some capacity with narcissists.
 # Articles
+## The Science Behind Psychopaths and Extreme Altruists
+
+Some things that stood out..
+
+> We are the most social species on Earth, and we are also the most violent species on Earth,” says Jean Decety, a social neurologist at the University of Chicago. “We have two faces because these two faces were important to survival.
+> But in recent decades researchers have made significant advances toward understanding the science of what drives good and evil. Both seem to be linked to a key emotional trait: empathy, which is an intrinsic ability of the brain to experience how another person is feeling.
+
+> Temporary states such as drunkenness, fear, or hunger can briefly reduce our empathy responses, while childhood trauma can have longer term effects.
+> A widespread empathy shutdown can occur when an entire group of people conforms to an ideology of aggression or superiority, such as during wartime.
+
+
 
 ## THE PSYCHOPATH - The Mask of Sanity
 

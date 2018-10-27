@@ -18,6 +18,10 @@ Some things that stood out..
 
 >Psychopaths have utter disregard for the feelings of others, although they seem to learn to mimic emotions. “They really just have a complete inability to appreciate anything like empathy or guilt or remorse,” says Kent Kiehl, a neuroscientist at the Mind Research Network and the University of New Mexico who was drawn to studying psychopathy in part because he grew up in a neighborhood that was once home to the serial killer Ted Bundy. These are people who are “just extremely different than the rest of us.
 
+>The psychopath appears to compensate for this deficiency by using other parts of the brain to cognitively simulate what really belongs in the realm of emotion. “That is, the psychopath must think about right and wrong while the rest of us feel it,” Kiehl wrote in a paper he co-authored in 2011.
+
+>When looking at fearful faces, donors showed a greater response in their right amygdala than a control group. Separately, the researchers found that their right amygdalas were, on average, 8 percent larger than those of the control group. Similar studies done previously on psychopathic subjects had found the opposite: The amygdalas in psychopathic brains are smaller and activated less than those in controls while reacting to frightened faces.
+
 ## THE PSYCHOPATH - The Mask of Sanity
 
 > 4 percent of the people on this planet have no conscience.  The presence or absence of conscience is a deep human division, arguably more significant than intelligence, race, or even gender.  What distinguishes these people from the rest of us is an utterly empty hole in the psyche, where there should be the most evolved of all humanizing functions.

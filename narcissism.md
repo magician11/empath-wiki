@@ -13,6 +13,9 @@ Some things that stood out..
 > Temporary states such as drunkenness, fear, or hunger can briefly reduce our empathy responses, while childhood trauma can have longer term effects.
 > A widespread empathy shutdown can occur when an entire group of people conforms to an ideology of aggression or superiority, such as during wartime.
 
+![Screen Shot 2018 10 27 At 3 06 48 Pm](/uploads/screen-shot-2018-10-27-at-3-06-48-pm.png "Screen Shot 2018 10 27 At 3 06 48 Pm")
+> [psychopaths] recognize how and when to feign empathy
+
 
 
 ## THE PSYCHOPATH - The Mask of Sanity

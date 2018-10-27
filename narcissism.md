@@ -16,7 +16,7 @@ Some things that stood out..
 ![Screen Shot 2018 10 27 At 3 06 48 Pm](/uploads/screen-shot-2018-10-27-at-3-06-48-pm.png "Screen Shot 2018 10 27 At 3 06 48 Pm")
 > [psychopaths] recognize how and when to feign empathy
 
-
+>Psychopaths have utter disregard for the feelings of others, although they seem to learn to mimic emotions. “They really just have a complete inability to appreciate anything like empathy or guilt or remorse,” says Kent Kiehl, a neuroscientist at the Mind Research Network and the University of New Mexico who was drawn to studying psychopathy in part because he grew up in a neighborhood that was once home to the serial killer Ted Bundy. These are people who are “just extremely different than the rest of us.
 
 ## THE PSYCHOPATH - The Mask of Sanity
 

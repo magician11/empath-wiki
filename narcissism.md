@@ -22,7 +22,11 @@ Some things that stood out..
 
 >When looking at fearful faces, donors showed a greater response in their right amygdala than a control group. Separately, the researchers found that their right amygdalas were, on average, 8 percent larger than those of the control group. Similar studies done previously on psychopathic subjects had found the opposite: The amygdalas in psychopathic brains are smaller and activated less than those in controls while reacting to frightened faces.
 
-[source](https://www.nationalgeographic.com/magazine/2017/08/science-good-evil-charlottesville/)
+>Gregory Stanton, a former U.S. State Department official and founder of Genocide Watch, a nonprofit that works to prevent mass murder, has identified the stages that can cause otherwise decent people to commit murder. It starts when demagogic leaders define a target group as “the other” and claim it is a threat to the interests of supporters. Discrimination follows, and soon the leaders characterize their targets as subhuman, eroding the in-group’s empathy for “the other.”
+>
+>Next, society becomes polarized. “Those planning the genocide say, ‘You are either with us or against us,’ ” says Stanton. This is followed by a phase of preparation, with the architects of the genocide drawing up death lists, stocking weapons, and planning how the rank and file are to execute the killings. Members of the out-group are sometimes forced to move into ghettos or concentration camps. Then the massacres begin.
+
+[source - National Geographic](https://www.nationalgeographic.com/magazine/2017/08/science-good-evil-charlottesville/)
 
 ## THE PSYCHOPATH - The Mask of Sanity
 

@@ -25,6 +25,8 @@ Some things that stood out..
 >Gregory Stanton, a former U.S. State Department official and founder of Genocide Watch, a nonprofit that works to prevent mass murder, has identified the stages that can cause otherwise decent people to commit murder. It starts when demagogic leaders define a target group as “the other” and claim it is a threat to the interests of supporters. Discrimination follows, and soon the leaders characterize their targets as subhuman, eroding the in-group’s empathy for “the other.”
 >
 >Next, society becomes polarized. “Those planning the genocide say, ‘You are either with us or against us,’ ” says Stanton. This is followed by a phase of preparation, with the architects of the genocide drawing up death lists, stocking weapons, and planning how the rank and file are to execute the killings. Members of the out-group are sometimes forced to move into ghettos or concentration camps. Then the massacres begin.
+>
+>Many of the perpetrators remain untouched by remorse, not because they are incapable of feeling it—as is the case with psychopathic killers—but because they find ways to rationalize the killings.
 
 [source - National Geographic](https://www.nationalgeographic.com/magazine/2017/08/science-good-evil-charlottesville/)
 

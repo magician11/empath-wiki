@@ -25,3 +25,6 @@ The Law of Compensation
 
 Law of Relativity
 >you may think you are poor, but perhaps that’s because you have three wealthy uncles. By keeping this law in mind, you remain conscious of the fact that there are always multiple perspectives on anything that happens to you. Trying to slip into these alternate perspectives can make you more grateful, 
+
+Law of Polarity
+>By regularly reminding yourself of this, you can improve your resilience in troubled times. For example, though a bad breakup is painful, it teaches you what doesn’t work for you in a relationship, helping you to eventually find what does.

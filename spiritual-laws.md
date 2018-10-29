@@ -1,5 +1,4 @@
 <!-- TITLE: Spiritual Laws -->
-<!-- SUBTITLE: A quick summary of Spiritual Laws -->
 
 # Articles
 ## The 12 Spiritual Laws Of The Universe And What They Mean

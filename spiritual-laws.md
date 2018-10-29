@@ -28,3 +28,8 @@ Law of Relativity
 
 Law of Polarity
 >By regularly reminding yourself of this, you can improve your resilience in troubled times. For example, though a bad breakup is painful, it teaches you what doesn’t work for you in a relationship, helping you to eventually find what does.
+
+Law of Rhythm
+>Today’s season may be good, but nothing is permanent, so enjoy what you have while it lasts.
+
+[source](http://www.thelawofattraction.com/12-spiritual-laws-universe/)

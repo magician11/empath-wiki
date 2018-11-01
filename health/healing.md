@@ -55,6 +55,10 @@ the K-27 points interact with all of the nine energy systems and our hands are e
 
 [source](http://www.semmelmanenergy.com/kidney-27-thump-jump/)
 
+K 27 Acupressure Points (on both sides) are good for chest congestion, phlegm, coughing, throat spasms, sore throats, shallow breathing, difficult breathing, chest tightness, chest pain, anxiety, agitation and thyroid gland irregularities.K 27 is the master Yu Point; its also the exit point of the kidney meridian.
+
+[source](https://www.acupressure.com/blog/index.php/master-acupressure-points-k-27-for-back-pain-stress-relief-deep-breathing-a-point-everyone-should-know/)
+
 ## Anxiety
 
 Try colouring in :)

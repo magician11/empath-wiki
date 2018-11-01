@@ -38,6 +38,11 @@ source is PsychCentral: [part1](https://blogs.psychcentral.com/addiction-mental-
 ## Talk to someone
 
 Someone that can just be present and be there for you, without judgement and advice. Just being there for you.
+
+## EFT (Emotional Freedom Technique)
+
+This a technique that uses acupressure to release blocked energies from our system, which in turn release blocked emotions.
+
 ## Anxiety
 
 Try colouring in :)

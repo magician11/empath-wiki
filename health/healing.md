@@ -15,7 +15,7 @@ self-harm, cutting, drug abuse, overwork
 
 3. You’re struggling with depression, anxiety, or another serious mental health concern
 
-Depression is anger turned inward. Anxiety is what happens when we cut ourselves off from our feelings and our energy bounces back and forth between our internal walls.\
+Depression is anger turned inward. Anxiety is what happens when we cut ourselves off from our feelings and our energy bounces back and forth between our internal walls.
 
 4. You avoid certain places, objects, or people you used to love, because they trigger terrible feelings.
 

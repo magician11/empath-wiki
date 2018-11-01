@@ -45,11 +45,15 @@ This a technique that uses acupressure to release blocked energies from our syst
 
 ### Points
 
-The collar bone point..
+#### The collar bone point
 
 The junction where the sternum (breastbone), collarbone and the first rib meet. This is a very important point and in acupuncture is referred to as K (kidney) 27. To locate it, first place your forefinger on the U-shaped notch at the top of the breastbone (about where a man would knot his tie). From the bottom of the U, move your forefinger down toward the navel 1 inch and then go to the left (or right) 1 inch. This point is referred to as Collar Bone even though it is not on the collarbone (or clavicle) per se.
 
 [source](https://eft.mercola.com/)
+
+the K-27 points interact with all of the nine energy systems and our hands are electromagnetically activated, all energetic systems are literally “jump started” by tapping these points.
+
+[source](http://www.semmelmanenergy.com/kidney-27-thump-jump/)
 
 ## Anxiety
 

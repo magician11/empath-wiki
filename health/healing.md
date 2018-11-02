@@ -76,3 +76,15 @@ Get it out onto paper whatever is going on for you. [Even Eminem used writing in
 ## Reflexology
 
 ![Foot Reflexology Chart](/uploads/foot-reflexology-chart.jpg "Foot Reflexology Chart")
+
+#  9 Strategies To Stop Absorbing Other People’s Illness and Pain 
+
+1. Evaluate. First, ask yourself: Is this symptom or emotion mine or someone else’s? It could be both. If the emotion such as fear or anger is yours, gently confront what’s causing it on your own or with professional help. If it’s not yours, try to pinpoint the obvious generator.
+2. Move away. When possible, distance yourself by at least twenty feet from the suspected source. See if you feel relief. Don’t err on the side of not wanting to offend strangers. In a public place, don’t hesitate to change seats if you feel a sense of “dis-ease” imposing on you.
+3. Know your vulnerable points. Each of us has a body part that is more vulnerable to absorbing others’ stress. Mine is my gut. Scan your body to determine yours. Is it you neck? Do you get sore throats? Headaches? Bladder infections? At the onset of symptoms in these areas, place your palm there and keep sending loving-kindness to that area to soothe discomfort. For longstanding depression or pain, use this method daily to strengthen yourself. It’s comforting and builds a sense of safety and optimism.
+4. Surrender to your breath. If you suspect you are picking up someone else’s symptoms, concentrate on your breath for a few minutes. This is centering and connects you to your power.
+5. Practice Guerilla Meditation. To counter emotional or physical distress, act fast and meditate for a few minutes. Do this at home, at work, at parties, or conferences. Or, take refuge in the bathroom. If it’s public, close the stall. Meditate there. Calm yourself. Focus on positivity and love.
+6. Set healthy limits and boundaries. Control how much time you spend listening to stressful people, and learn to say “no.” Remember, “no” is a complete sentence.
+7. Visualize protection around you. Visualize an envelope of white light around your entire body. Or with extremely toxic people, visualize a fierce black jaguar patrolling and protecting your energy field against intruders.
+8. Develop X ray vision. The spaces between the vertebrae in your lower back (lumbar spine) are conducive to eliminating pain from the body. It’s helpful to learn to mindfully direct pain out of these spaces by visualizing it leaving your body. Say goodbye to pain as it blends with the giant energy matrix of life!
+9. Take a bath or shower. A quick way to dissolve stress is to immerse yourself in water. My bath is my sanctuary after a busy day. It washes away everything from bus exhaust to long hours of air travel to pesky symptoms I have taken on from others. Soaking in natural mineral springs divinely purifies all that ails.

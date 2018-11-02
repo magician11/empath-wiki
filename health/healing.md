@@ -88,3 +88,57 @@ Get it out onto paper whatever is going on for you. [Even Eminem used writing in
 7. Visualize protection around you. Visualize an envelope of white light around your entire body. Or with extremely toxic people, visualize a fierce black jaguar patrolling and protecting your energy field against intruders.
 8. Develop X ray vision. The spaces between the vertebrae in your lower back (lumbar spine) are conducive to eliminating pain from the body. It’s helpful to learn to mindfully direct pain out of these spaces by visualizing it leaving your body. Say goodbye to pain as it blends with the giant energy matrix of life!
 9. Take a bath or shower. A quick way to dissolve stress is to immerse yourself in water. My bath is my sanctuary after a busy day. It washes away everything from bus exhaust to long hours of air travel to pesky symptoms I have taken on from others. Soaking in natural mineral springs divinely purifies all that ails.
+
+https://drjudithorloff.com/empathic-illnesses-do-you-absorb-other-peoples-symptoms/
+
+# Saunas: 9 Reasons Why Are Great Health Support for Empaths
+1. Saunas Improve Mood and Reduce Depression
+Saunas are somewhat stressful on the body, so your brain produces and releases more euphoric hormones to deal with it.
+2. Saunas Reduce Anxiety and Stress
+Several studies have shown that regular sauna use lowers levels of cortisol, your body’s main stress hormone (49-52). 
+3. Saunas Increase Beta-Endorphins, Relieve Pain and Help Treat Fibromyalgia
+Your brain produces and releases these natural painkillers during times of strenuous exercise, emotional stress and pain. Since saunas are a stressor, the release of endorphins are increased when you spend time in one.
+4. Saunas Increase Brain-Derived Neurotrophic Factor (BDNF)
+Research shows that heat exposure increases the expression of BDNF. Brain-derived neurotrophic factor (BDNF) is a naturally-occurring protein in the brain that lowers your risk of mental disease and improves your mood. It does this by protecting and repairing your brain cells and increasing the growth of new brain cells. Many researchers consider it a natural antidepressant because it can reduce anxiety and depression.
+5. Saunas Increase Norepinephrine Levels and May Help Treat Attention Deficit Hyperactivity Disorder (ADHD)
+Numerous studies have found that sauna use significantly increases norepinepherine levels. Norepinephrine, also called noradrenaline, is a hormone and neurotransmitter in the brain that can help with focus and attention.
+6. Saunas Encourage the Growth of Myelin
+Heat stress increases prolactin, a hormone that promotes the production of myelin.  Myelin is a fatty, white substance that wraps around the end of many nerve cells. It forms an electrically insulating sheath that increases nerve condition speeds. In other words, it allows your brain to send information faster and more efficiently, making it absolutely essential for the optimal functioning of your nervous system.
+7. Saunas Reduce Symptoms of Chronic Fatigue
+One study found that infrared sauna sessions significantly reduce fatigue in patients with chronic fatigue syndrome. It also significantly reduced their anxiety and depression
+8. Saunas Reduce Tension Headaches
+9. Saunas Increase Deep Sleep.
+
+# Interventions to Halt Energetic Eating
+
+When the impulse to overeat hits:
+
+1. Discern addictive craving from a true need.
+Addictive craving, a symptom of nutritional abuse, is a frequent response to energetic overload. Here, you eat certain foods addictively; this leads to obesity. Whenever you keep lusting after sweets and carbs, be suspicious. With cravings, you eat to relieve stress, not to build energy. Try to identify addictive foods and limit them.
+With a true nutritional need there’s no lusting after food to guard against stress. A true need comes from a centered place, not from self-medicating emotions with comfort foods or obsession. Feeling healthily nurtured from food never involves mood swings — sedation or elation — but rather an even feeling of satisfaction. A true need lets you enjoy your meal, optimizes energy and doesn’t lead to obesity.
+
+2. Quickly pinpoint energetic triggers of addictive cravings.
+Immediately ask yourself: “Was I exposed to stress?” It could have been an obnoxious neighbor or phone messages from your mother. Don’t write off the “smaller” incidents, which notoriously send empaths motoring to the refrigerator. Don’t panic. Pinpoint cause and effect. Clear it quickly once you’ve been slimed.
+
+3. Breathe stress out of your system.
+Take a five-minute break for damage control. Slowly inhale and exhale. Breath activates your calming endorphins (natural painkillers) and releases stress from the body. Practice this visualization: Just as your lungs take in oxygen and expel toxic carbon dioxide, breathe in peacefulness and clarity, breathe out stress. Breathe in vitality. Breathe out fear. Repeat this exercise until you feel calmer.
+
+4. Try a three-minute meditation.
+Another way to calm yourself before you run to the refrigerator is with a three-minute meditation. I recommend keeping a meditation cushion in front of the refrigerator to remind yourself to meditate before opening the door.
+
+5. Set healthy limits and boundaries.
+With stressful people, limit the time you spend listening to them, and learn how to say “no.” Remember, “no” is a complete sentence.
+
+6. Take a bath or shower.
+A speedy way to dissolve stress is to immerse yourself in water. 
+
+7.Eat with attunement.
+Develop a diet that satisfies your energetic needs. Whatever you put in you mouth that is healthy, run it by your energy meter; see what truly nourishes or depletes. For instance, does chicken give you more energy than fish? Tomatoes more than carrots? Even foods you’ve shunned become more attractive when your experience their energy lift.
+
+8. Visualize a protective barrier around yourself.
+
+Ref. https://drjudithorloff.com/the-energy-of-food-a-missing-piece-in-weight-loss/
+
+
+
+

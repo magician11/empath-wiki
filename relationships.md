@@ -37,3 +37,59 @@ Empaths are usually quiet people. Our loved ones must accept this about us and b
 
 10. Play 
 Empaths tend to be on the serious side, but we also love to play. Be playful with your partner and let him or her bring out your inner child.
+
+
+# How to Cut an Unhealthy Bond with Someone
+## Practice a Partial Cord Cutting Visualization
+
+If you feel you are too connected with someone’s physical or emotional state, visualize a cord of light extending from your belly to theirs. Then lovingly set your intention to cut the cord with their pain or discomfort–you’re not severing the connection with the total person. Next, visualize taking a pair of scissors and cutting the cord between you and the aspect of the person you want distance from.
+
+Sometimes though you might attract a specific type of negative person because of the mutual emotional issues you both need to heal. This can lead to entering into an unhealthy “wound mate relationship” where you keep repeating the wounding process with each other. There’s an odd psychological comfort to this because it’s what you both know, what you’re used to. You become attached to a toxic person and can’t let go. This keeps you stuck in a painful cycle. For instance, your low self-esteem attracts people who criticize you, and the criticizer attracts people whom they can belittle because their parents belittled them. Be careful not to perpetuate wound mate relationships. Instead, let these people, whether they are friends, coworkers, spouses, or anyone–spur you to develop self-awareness and heal the initial wound. Then you can grow out of these relationships and find more fulfilling ones.
+
+Some energy vampires, such as a narcissist, are so toxic you’ll need to stop all contact with them. To end this type of relationship (or anyone with whom you want a complete break), go cold turkey. Keep moving and never look back. In addition, use this strategy also from my book, The Empath’s Survival Guide to help you completely cut an energetic cord with them.
+
+Practice a Complete Cord Cutting Visualization:
+In a calm state, picture cords of light connecting both of you. Inwardly say “Thank-you,” for what you’ve learned from the relationship even if the lessons were hard. Then firmly assert, “It’s time to completely break our bonds.” Next, visualize taking a pair of scissors and cutting each bond completely so you’re free of any mutual energetic ties. This will help you release this relationship and also remove lingering energy that you feel from the person.
+
+Have honorable closure. This shamanic technique lets you release a relationship, particularly if you keep thinking about the person or sense that they’re thinking about you. Go out in nature and find a large stick. Look at the stick and declare, “This relationship is over.” Then break the stick in half, leave the pieces on the ground, walk away, and never look back. This finalizes the ceremony of closure.
+
+Learning to set healthy boundaries, or if necessary complete breaks with those who drain you will protect your sensitivities and enhance your well-being.
+
+Ref. https://drjudithorloff.com/how-to-cut-an-unhealthy-bond-with-someone/
+
+## Another Energy Cord Cutting Ritual
+When we connect with another person, especially romantically we activate an energetic cord with them. As we continue through the relationship every interaction, thought, emotion and feeling is added to the cord. Spiritual author Doreen Virtue describes it best- “etheric cords act like hoses, with energy directed back and forth between both people”. This cord has the ability to share energy and transmit a high frequency of communication, which may explain why we often feel and connect telepathically to our partners thoughts and emotions. When the cord is healthy, it can create a vibrant, energetic source exchange but when the cord is unhealthy, it can often lead to feeling controlled or drained in energy.
+
+Most of us will intuitively know how strong our cord is with someone, but if you are unsure, a good measure is how strongly or how often you think or feel towards someone, especially if the thoughts are obsessive, manipulative or fearful.
+
+Our etheric cords are generated from our chakras or energy centers. When these connections are imbalanced that is when issues can occur.
+
+We are constantly creating cords with many people and even objects, but if you feel drawn back to an unhealthy relationship, or want to break negative patterns or addictions, or feel a strong psychic connection to someone that is draining your energy, a cord cutting ritual may be beneficial.
+
+Especially when it comes to relationships, cutting the cord can help break the energetic attachments created and can help you to move on to receive new opportunities in your life. Cutting the cord can help you recharge your energy, feel a sense of peace, can help you let go and can bring about new, positive opportunities.
+
+The Cord Cutting Ritual:
+Find a quiet place where you can be alone and not disturbed. Begin by relaxing your body and taking a few deep breaths.
+Once relaxed, close your eyes and call upon your spirit guides or angels to help guide you through the process.
+Upon feeling the presence of your guides, recite the following mantra:
+“Dear Spirit Guides, I call upon you to help me heal, let go, and cut any etheric cords that are no longer serving my higher purpose. I ask that all cords attached to me that are not aligned with love, light and positive attention be released. Help me to release them and surround me with a healing light to protect me from future attachments. Thank You.”
+You may need to repeat the mantra 2-3 times. You can also close your eyes and visualize the cords being released, as well as the healing light surrounding you.
+(You can of course tweak this ritual to your liking, there is no right or wrong- it’s ALL about your intention.)
+
+After the ritual is over, smudge your surroundings, take a warm bath, drink plenty of water and relax in a peaceful or comfortable setting.
+
+You will know if the ritual worked as you should feel lighter, more energized and more balanced.
+
+## Other Simple Techniques for Cord Cutting
+First, it’s crucial you train yourself to become aware what happens energetically when you interact with another person. Start by simply noticing how you feel before, during and after the conversation. Do you feel energized, or are you drained, fatigued and confused?
+
+Next time you interact with someone and you notice that something is not right, you need to take immediate energetic measures to not leak energy to the other person, or take on unresolved issues that are not yours.
+
+1. Protect Your Solar Plexus Chakra
+• To energetically protect your Solar Plexus Chakra simply put one hand over your stomach area, where this chakra is located.
+• Set the firm intention (you can do so silently in your head) to not allow any more energetic exchange on this level with the other person.
+
+2. Cut the Energetic Cord
+• Next, move one of your hands with an up and downward motion over your Solar Plexus. Visualize “chopping” the cord and by doing so, you are breaking the flow of energy to the other person. Again, set the firm intention to break this cord now for good.
+
+When you learn to take control of your own energy, life becomes more fun. Unnecessary drama will go away. People who have previously drained your energy will not be attracted to you anymore. It’s that simple.

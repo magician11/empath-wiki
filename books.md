@@ -62,7 +62,7 @@ I agree with Albom. In the end, all that matters is that we loved each other. Th
 
 [Goodreads](https://www.goodreads.com/book/show/6900.Tuesdays_with_Morrie)
 
-## Definitive Book of body language
+## Definitive Book of Body Language
 
 [Amazon](https://www.amazon.com/Definitive-Book-Body-Language-Expressions/dp/0553804723)
 

@@ -54,7 +54,7 @@ Ref. https://drjudithorloff.com/how-to-protect-your-energy/
 
 # 6 Survival Tips For Empaths
 A quick summary of 6 Survival Tips For Empaths
-##  6 Survival Tips for Empaths
+
 1. Move away. When possible, distance yourself by at least twenty feet from the suspected source. See if you feel relief. Don’t err on the side of not wanting to offend anyone. At the gathering try not to sit next to the identified energy vampire. Physical closeness increases empathy.
 
 2. Breathe. If you suspect you are picking up someone else’s energies, concentrate on your breath for a few minutes. This is centering and connects you to your power. In contrast, holding your breath keeps negativity lodged in your body. To purify fear and pain, exhale stress and inhale calm. Picture unwholesome emotions as a gray fog lifting from your body, and wellness as a clear light entering it. This can produce quick results.

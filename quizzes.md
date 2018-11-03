@@ -15,3 +15,5 @@ You can do this quiz [here](https://psychology-tools.com/empathy-quotient).
 
 # Myer's Briggs Personality Types
 
+![Myers Briggs](/uploads/myers-briggs.png "Myers Briggs")
+

@@ -19,9 +19,7 @@ You need to first join https://empath.community, and once in, we'll send you the
 
 ## Results to date
 
-![Personality Types](/uploads/personality-types.png "Personality Types")
-
-Last updated: 29th September 2018
+![Myers Briggs](/uploads/myers-briggs.png "Myers Briggs")
 
 ## Other notes
 

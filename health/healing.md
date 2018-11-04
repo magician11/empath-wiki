@@ -140,5 +140,10 @@ Develop a diet that satisfies your energetic needs. Whatever you put in you mout
 Ref. https://drjudithorloff.com/the-energy-of-food-a-missing-piece-in-weight-loss/
 
 
+# Ancestral Healing
+
+## Articles
+
+[How Toxic Personalities In Your Family Tree Can Affect Your Future Relationships](https://www.mindbodygreen.com/articles/how-your-ancestry-can-affect-your-relationships)
 
 

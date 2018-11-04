@@ -148,6 +148,8 @@ Ref. https://drjudithorloff.com/the-energy-of-food-a-missing-piece-in-weight-los
 
 >"Traumas do not sleep, even with death, but rather continue to look for the fertile ground of resolution in the children of the following generations," says neuroscientist Norman Diodge, M.D
 
+>We remember stories, not facts, because the hormones oxytocin and cortisol are released when we hear stories. This has implications for healing from trauma, because when we understand the root of the trauma, we have a coherent story behind the toxic relationships we keep finding ourselves in. This allows us to have empathy for ourselves and gives our brains a sense of closure. We stop blaming ourselves for being attracted to these personality types and stop seeing ourselves as stupid or naive. Those thoughts are dangerous: Self-blame can fuel anxiety and hopelessness. Only closure and forgiveness can help us stop repeating negative patterns.
+
 [source](https://www.mindbodygreen.com/articles/how-your-ancestry-can-affect-your-relationships)
 
 

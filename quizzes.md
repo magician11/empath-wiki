@@ -18,3 +18,11 @@ You can do this quiz [here](https://psychology-tools.com/empathy-quotient).
 ![Myers Briggs](/uploads/myers-briggs.png "Myers Briggs")
 
 Details [here](/myers-briggs-personality-types).
+
+# Narcissistic Personality Inventory
+
+i.e. Just how narcissistic are empaths? A full blown narcissist will have a high score close to 40.
+
+![Narcissistic Personality Inventory Scores For Empaths](/uploads/narcissistic-personality-inventory-scores-for-empaths.png "Narcissistic Personality Inventory Scores For Empaths")
+
+You can do this quiz [here](https://openpsychometrics.org/tests/NPI/).

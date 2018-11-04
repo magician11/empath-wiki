@@ -144,6 +144,10 @@ Ref. https://drjudithorloff.com/the-energy-of-food-a-missing-piece-in-weight-los
 
 ## Articles
 
-[How Toxic Personalities In Your Family Tree Can Affect Your Future Relationships](https://www.mindbodygreen.com/articles/how-your-ancestry-can-affect-your-relationships)
+### How Toxic Personalities In Your Family Tree Can Affect Your Future Relationships
+
+>"Traumas do not sleep, even with death, but rather continue to look for the fertile ground of resolution in the children of the following generations," says neuroscientist Norman Diodge, M.D
+
+[source](https://www.mindbodygreen.com/articles/how-your-ancestry-can-affect-your-relationships)
 
 

@@ -1,13 +1,9 @@
 <!-- TITLE: Clearing -->
 <!-- SUBTITLE: How to clear out stress and negative energies -->
 
-* getting super present
-* having a shower
-* breathing deep
-* burping
-* green tea
-
 ## Letting go
+
+How to release the stress in yourself so you can rest and sleep well at night.
 
 * getting super present
 * having a shower

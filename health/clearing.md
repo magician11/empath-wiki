@@ -1,11 +1,24 @@
 <!-- TITLE: Clearing -->
-<!-- SUBTITLE: How to clear out negative energies -->
+<!-- SUBTITLE: How to clear out stress and negative energies -->
 
 * getting super present
 * having a shower
 * breathing deep
 * burping
 * green tea
+
+## Letting go
+
+* getting super present
+* having a shower
+* breathing deep
+* burping
+* green tea
+* foot massage
+* any creative expression where you are externalising your inner world; like journalling, painting, drawing
+* yoga nidra
+
+
 
 ## Clearing a space/room
 

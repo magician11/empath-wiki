@@ -2,6 +2,9 @@
 <!-- SUBTITLE: Resources on healing -->
 
 
+# Essential oils
+
+- Black seed oil ([on eBay](https://www.ebay.com.au/itm/Black-Seed-Oil-Cold-Pressed-Carrier-Negilla-Sativa-Oil-Pure-10-ML-To-700-ML-/121947400422))
 
 # Signs of unhealed trauma
 

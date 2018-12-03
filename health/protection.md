@@ -3,6 +3,12 @@
 
 * wearing and having crystals close by
 
+# Watch movies that amp your energy up
+
+## Wonder Woman
+
+![Wonder Woman](https://media.giphy.com/media/qrgR5unEX8liw/giphy.gif)
+
 # Protection Strategies For Empaths
 A quick summary of 5 Protection Strategies For Empaths
 

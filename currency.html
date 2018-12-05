@@ -1,0 +1,83 @@
+<!DOCTYPE html>
+<html lang="en">
+
+<head>
+    <meta charset="utf-8">
+    <meta http-equiv="X-UA-Compatible" content="IE=edge">
+    <meta name="viewport" content="width=device-width, initial-scale=1">
+    <title>Currency Conversion</title>
+    <link rel="stylesheet" href="https://maxcdn.bootstrapcdn.com/bootstrap/3.3.7/css/bootstrap.min.css" integrity="sha384-BVYiiSIFeK1dGmJRAkycuHAHRg32OmUcww7on3RYdg4Va+PmSTsz/K68vbdEjh4u"
+        crossorigin="anonymous">
+</head>
+
+<body>
+    <div class="container col-sm-6 col-sm-offset-3 hidden">
+        <h1 class="text-center">Currency Conversion <small>USD to NZD</small></h1>
+        <hr />
+        <form>
+            <div class="form-group">
+                <label for="usdAmountInput">USD Amount</label>
+                <div class="input-group">
+                    <div class="input-group-addon">$</div>
+                    <input type="number" class="form-control input-lg" id="usdAmountInput" autofocus>
+                </div>
+            </div>
+        </form>
+        <div class="alert alert-info" role="alert">
+            <span class="glyphicon glyphicon-info-sign" aria-hidden="true"></span> <span class="exchangeRate"></span>
+        </div>
+        <table class="table">
+            <caption id="exchangeRate"></caption>
+            <thead>
+                <tr>
+                    <th>USD</th>
+                    <th>NZD</th>
+                </tr>
+            </thead>
+            <tbody>
+                <tr>
+                    <td id="usdAmountFormatted">$0.00</td>
+                    <td id="nzdAmountFormatted">$0.00</td>
+                </tr>
+            </tbody>
+        </table>
+        <hr />
+        <p class="text-center">Created by <a href="https://www.golightlyplus.com">Golightly+</a></p>
+    </div>
+
+    <script src="https://code.jquery.com/jquery-3.2.1.min.js"></script>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/numeral.js/2.0.6/numeral.min.js"></script>
+    <script>
+        $(document).ready(function () {
+            /*
+            Currency conversion API docs at http://fixer.io/
+            Rates are updated on almost every working day from the European Central Bank.
+            For more details, see http://www.ecb.europa.eu/stats/policy_and_exchange_rates/euro_reference_exchange_rates/html/index.en.html
+            */
+            var usdToNzd;
+            const accessKey = 'e9a7c3f3712a4aa1a47634c382a9a40f'
+            $.get(`https://openexchangerates.org/api/latest.json?base=USD&symbols=NZD&app_id=${accessKey}`, function (response) {
+                usdToNzd = response.rates.NZD;
+                $(".exchangeRate").text("1 USD = " + usdToNzd + " NZD");
+                $(".container").removeClass("hidden");
+            });
+
+            /*
+            On every input change for the USD value, update the NZD value.
+            And format to a currency format using http://numeraljs.com/
+            */
+            $("#usdAmountInput").on("input", function (event) {
+                // show and format USD amount
+                $("#usdAmountFormatted").text(
+                    numeral(event.target.value).format("$0,0.00")
+                );
+                // show and format NZD amount
+                $("#nzdAmountFormatted").text(
+                    numeral(event.target.value * usdToNzd).format("$0,0.00")
+                );
+            });
+        });
+    </script>
+</body>
+
+</html>

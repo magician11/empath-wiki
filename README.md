@@ -10,7 +10,7 @@ This site is collation of the knowlege and wisdom from the empaths in our [Empat
 
 # What is an empath?
 
-"An empath is a person who can intuitively pick up on and even absorb the emotional and physical feelings of others. They are usually very giving of themselves and it’s common to find empaths working as healers and in heart-centered work. They need alone time every day in order to clear energy that isn’t theirs and process their emotions." -- [source](https://jessicadimas.com/self-care-tips-tools-empaths/)
+An empath is a person who intuitively picks up on and absorbs the emotional and sometimes physical feelings of others. They are usually very giving of themselves and it’s common to find empaths working as healers and in heart-centered work. They need alone time every day in order to clear energy that isn’t theirs and process their emotions." -- slightly modified from [this source](https://jessicadimas.com/self-care-tips-tools-empaths/)
 
 # What content is on this site?
 

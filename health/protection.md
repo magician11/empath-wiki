@@ -31,7 +31,7 @@ When you need extra protection I recommend this meditation to call on the power 
 
 Ref. https://drjudithorloff.com/5-protection-strategies-for-empaths-2/
 
- ## From "How to Protect Your Energy" by Judith Orloff
+## From "How to Protect Your Energy" by Judith Orloff
 Our common beliefs that drain your intuitive healing power:
 
 I’m not strong enough to protect myself.
@@ -76,5 +76,14 @@ A quick summary of 6 Survival Tips For Empaths
 * If your comfort level is three hours max for socializing–even if you adore the people — take your own car or have an alternate transportation plan so you’re not stranded.
 * If crowds are overwhelming, eat a high-protein meal beforehand (this grounds you) and sit in the far corner of, say, a theatre or party, not dead center.
 * Some empaths are highly sensitive to scents, if you are overwhelmed, for instance by perfume, nicely request that your friends refrain from wearing it around you. If you can’t avoid it, stand near a window or take frequent breaks to catch a breath of fresh air outdoors.
-* 
+
 https://drjudithorloff.com/6-survival-tips-for-empaths/
+
+# Clearing Stagnant Energy In A House
+
+Here is a little tip for if you are being plauged by bad or restless dreams/nights...or to be used anywhere in the house where you feel the energy may have become cluttered or stagnant or negative.
+but i'll use the bedroom for an example. so doorways and windows are often seen as the entrance way for energies to come into your space. corners are places where energies sometimes clump up or linger. and the bed is where you sleep so if there are thoughts/energies/emotions/etc plaguing you, they are likely to come visiting you in your sleep.
+so what you do is you take a broom- some ppl have a broom set aside for things like this, but an ordinary broom is fine. i have a cinnamon broom i use. :) i keep it hanging in my bedroom for extra good vibes. you take your broom and you start at the door to the room and sweep gently all along the entrance and up around the frame of the door and across the top of the frame. then you sweep down the door itself. focusing the whole time on clearing any stuck or negative or just "dusty" energy. then if you feel drawn to any of the corners especially, you go sweep that corner and the walls forming it. or just sweep all corners. closets too. and their doors.
+then you gently sweep all around the whole bed. if it's agains a wall, sweep the wall if you can't reach the floor everywhere. finally you lightly sweep over the bed itself. it can be made while you do it, best that it is really. and all the time holding that intention of clearing the space of unwanted energies. if you have deities or animal spirits or any energy beings of any kind whose help you want to ask while you do this, then go ahead. just make sure it is an invitation/request for help, not commanding sounding.
+when you are all done brooming, sprinkle a little water mixed w salt or essential oil of preference in all the areas you swept and know that they are all now fresh, clean and protected. :) then the last step is always to thank your broom, any other materials you used, and any good energies that may have helped you out! you can also place small bowls of salt in the corners or a small bowl of salt or salt water under the bed for extra help. :)
+just a little energerial "housekeeping" tip for you! it really does help. and if you feel the space is being kind of "taken over" by energies that are negative or "not you" in anyway, it can really help clean that right out and give you back your space to re-fill w energy of your choosing. :sparkles: happy brooming!

@@ -26,3 +26,13 @@ In terms of seeing parallels with empaths, I'd mainly just recommend season 1 to
 ## Invisibilia by NPR, Entanglement episode
 
 [on iTunes](https://itunes.apple.com/us/podcast/invisibilia/id953290300?mt=2&i=1000334423876)
+
+# Movies
+
+## Jupiter Ascending
+
+Who exactly are the Wachowskis? How do they know so much about reality?
+
+![Mila](https://ksassets.timeincuk.net/wp/uploads/sites/55/2014/07/MilaKunis1Getty162791147_270313-620x413.jpg)
+
+This movie is about a girl who believes her life is simple and just about cleaning houses. She learns she is from a royal genetic line. She claims her title and ultimately returns to Earth doing what she was, but knowing she actually owns the planet.

@@ -25,6 +25,7 @@ Here is the structure of our site...
 - the current [science](/science) on empaths
 - the [health](/health) of an empath - how to protect and look after our energy systems
 - a variety of [meditations](/meditations)
+- solid actual useful [education](/education)
 - a [collection of Q&A](https://docs.google.com/spreadsheets/d/e/2PACX-1vQW220o2-HDAPFsDmhfjU0Fhr1_PO90rdjnBQ9ve8g73zL46S4kuPwgv-HVIGVNikl1uqhMgBUR458P/pubhtml?gid=262856724&single=true) with empaths
 
 # How do I contribute?

@@ -3,6 +3,14 @@
 
 # Non-fiction
 
+## The Untethered Soul
+By Michael Singer
+
+Who are you really? Who is aware?
+
+[Amazon](https://www.amazon.com/Untethered-Soul-Journey-Beyond-Yourself/dp/1572245379/)
+[website](https://untetheredsoul.com/)
+
 ## Codependent No More
 By Melody Beattie
 This book is for those who are or tend to get emotionally attached of others who have any sort of toxic dependency (drugs, alcohol, sex, emotions).

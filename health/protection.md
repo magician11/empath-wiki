@@ -97,3 +97,7 @@ it can be tweaked in assorted ways- sometimes you go through your branches to se
 sometimes ppl mostly focus on the earth/sky connected energies running up and down through their "trunk"
 i like to also imagine my roots and branches sweeping out to skim the edges of a river bc i like to be really connected to water too
 and i like to imagine myself part of the time sitting crosslegged with my back straight against the tree and a basket in my lap, collecting falling leaves and doing divinations with the lines and veins on them
+
+# Protecting yourself from dark entities
+
+Lightworkers are targets for dark/low entities.. they feed off fear.. reiki, salt, sage is more for house clearing. To clear entities, you need to strengthen yourself spiritually. Call on Archangel Michael, use black tourmaline... raise your vibrations.. and dark energies cannot connect with you then. Connect with your guides and angels.

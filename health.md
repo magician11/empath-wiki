@@ -1,5 +1,7 @@
 <!-- TITLE: Empath Health -->
 
+![what it looks like to connect with others for empaths](https://res.cloudinary.com/go-for-self/image/upload/v1552766983/our_energy_bubbles_qnvhlk.jpg)
+
 Preserving the energy system of an empath is vitally important for empaths to be able to give and support others.
 
 Emapths have energy systems that are easily affected by the outside world. Most empaths struggle with overwhelm. This section aims to provide a comprehensive resource for empaths to be able to heal, protect and clear shitty energy from their system.

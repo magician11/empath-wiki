@@ -8,16 +8,16 @@ By Russell Brand
 
 As empaths, we might be "addicted" to helping other or have various behavioral addictions that are sometimes more insidious.
 
-[Amazon](https://www.amazon.com/Recovery-Freedom-Addictions-Russell-Brand/dp/1250141923)
-[website](https://www.russellbrand.com/recovery/)
+- [Amazon](https://www.amazon.com/Recovery-Freedom-Addictions-Russell-Brand/dp/1250141923)
+- [Russell's website](https://www.russellbrand.com/recovery/)
 
 ## The Untethered Soul
 By Michael Singer
 
 Who are you really? Who is aware?
 
-[Amazon](https://www.amazon.com/Untethered-Soul-Journey-Beyond-Yourself/dp/1572245379/)
-[website](https://untetheredsoul.com/)
+- [Amazon](https://www.amazon.com/Untethered-Soul-Journey-Beyond-Yourself/dp/1572245379/)
+- [The Untethered Soul website](https://untetheredsoul.com/)
 
 ## Codependent No More
 By Melody Beattie

@@ -3,6 +3,14 @@
 
 # Non-fiction
 
+## Recovery: Freedom from Our Addictions
+By Russell Brand
+
+As empaths, we might be "addicted" to helping other or have various behavioral addictions that are sometimes more insidious.
+
+[Amazon](https://www.amazon.com/Recovery-Freedom-Addictions-Russell-Brand/dp/1250141923)
+[website](https://www.russellbrand.com/recovery/)
+
 ## The Untethered Soul
 By Michael Singer
 

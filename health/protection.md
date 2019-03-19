@@ -100,4 +100,8 @@ and i like to imagine myself part of the time sitting crosslegged with my back s
 
 # Protecting yourself from dark entities
 
-Lightworkers are targets for dark/low entities.. they feed off fear.. reiki, salt, sage is more for house clearing. To clear entities, you need to strengthen yourself spiritually. Call on Archangel Michael, use black tourmaline... raise your vibrations.. and dark energies cannot connect with you then. Connect with your guides and angels.
+Lightworkers are targets for dark entities. These entities feed off fear.
+
+Reiki, course salt, and sage is more for house clearing. This is not effective enough for clearing dark entities.
+
+To clear entities, you need to strengthen yourself spiritually. This will take time. Call on Archangel Michael, and use black tourmaline to protect you and create a shield around you. Show no fear, and demand it to leave. The most important thing is to raise your vibrations. When you do this you literally enter a different realm, and dark energies cannot connect with you then. Also connect with your spiritual guides and angels; they are here to protect and guide you on your path in this life.

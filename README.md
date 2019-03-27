@@ -23,6 +23,7 @@ Here is the structure of our site...
 - [books](/books) recommended by empaths
 - [TV and movies](/tv-and-movies) related to empaths
 - the current [science](/science) on empaths
+- meta information about our [members](/members)
 - the [health](/health) of an empath - how to protect and look after our energy systems
 - a variety of [meditations](/meditations)
 - solid actual useful [education](/education)

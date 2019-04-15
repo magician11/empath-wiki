@@ -1,6 +1,6 @@
 <!-- TITLE: Empath Health -->
 
-![what it looks like to connect with others for empaths](https://res.cloudinary.com/go-for-self/image/upload/v1552766983/our_energy_bubbles_qnvhlk.jpg)
+![look after yourself](https://cdn.discordapp.com/attachments/491202965873360897/567009601728544817/image0.jpg)
 
 Preserving the energy system of an empath is vitally important for empaths to be able to give and support others.
 

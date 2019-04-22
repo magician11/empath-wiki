@@ -1,6 +1,6 @@
 <!-- TITLE: Blogs -->
 <!-- SUBTITLE: Blogs written by empaths -->
 
-Go For Self by Andrew Golightly: https://goforself.me/category/blog/
+[Empath Community](https://empath.community/category/blog/) by Andrew Golightly
 
-Not Always Prickly by Christi Wilson: keywordwakeup.wordpress.com
+[Not Always Prickly](https://keywordwakeup.wordpress.com/) by Christi Wilson

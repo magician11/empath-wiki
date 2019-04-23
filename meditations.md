@@ -28,4 +28,10 @@ i did my best to explain it as simple as possible,if you have any questions or i
 ### Songs for relaxation
 Here is a music that relaxes you instantly and put you in a nice state of mind. **Do not listen to it while driving**
 
-[Weightless-Youtube](https://www.youtube.com/watch?v=UfcAVejslrU)
+1. [Weightless-Youtube](https://www.youtube.com/watch?v=UfcAVejslrU)
+  
+   One of my favorite music to listen to when i want to recharge and just go into my own little world and feelings. If you have trouble sleeping it might be able to help you and relax you up to the point that you feel light.
+   
+2. [You & Me | Relaxing Music by Peder B. Helland](https://www.youtube.com/watch?v=zT0-tOian_Q)
+    
+   This one can be use as a quick and relaxing meditation to start the day or just to cleanse yourselves as well as make a light bubble around you. The light bubble will act as your shield from negative energies but be sure to **Visualize** it because that is the key to it and **Feel** the energies around you. ^-^

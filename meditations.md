@@ -32,6 +32,6 @@ Here is a music that relaxes you instantly and put you in a nice state of mind. 
   
    One of my favorite music to listen to when i want to recharge and just go into my own little world and feelings. If you have trouble sleeping it might be able to help you and relax you up to the point that you feel light.
    
-2. [You & Me | Relaxing Music by Peder B. Helland](https://www.youtube.com/watch?v=zT0-tOian_Q)
+2. [You & Me](https://www.youtube.com/watch?v=zT0-tOian_Q)  Relaxing Music by Peder B. Helland
     
    This one can be use as a quick and relaxing meditation to start the day or just to cleanse yourselves as well as make a light bubble around you. The light bubble will act as your shield from negative energies but be sure to **Visualize** it because that is the key to it and **Feel** the energies around you. ^-^

@@ -35,3 +35,7 @@ Here is a music that relaxes you instantly and put you in a nice state of mind. 
 2. [You & Me](https://www.youtube.com/watch?v=zT0-tOian_Q)  Relaxing Music by Peder B. Helland
     
    This one can be use as a quick and relaxing meditation to start the day or just to cleanse yourselves as well as make a light bubble around you. The light bubble will act as your shield from negative energies but be sure to **Visualize** it because that is the key to it and **Feel** the energies around you. ^-^
+   
+3. [Peaceful Day](https://www.youtube.com/watch?v=8ucy-jPioUc) Relaxing Music by Peder B. Helland
+
+   Another recommended music to listen to, to find your inner peace.

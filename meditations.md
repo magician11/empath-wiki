@@ -24,3 +24,6 @@ The earth one is third as it requires you to visualize the mother earth cleansin
 
 The one with fire is a little tricky and harder to master but is the most effective for protection. Light a candle(be careful not to burn yourselves and you can place it in a bowl with a little water just to be safe) sit down crossed leg or on a chair. Start by visualizing the energy of the flame, warm, hot and comfy too. Making a link from your third eye, visualizing the flame on your third eye burning slowly attracting all the negative energies and burning them away while making an energy barrier all over your body(you might start sweating and your whole body will feel warmed up that's usual). Feel the flame, that is the tip i can give you ^-^ it protects you from the evil energies and heightens your intuition. You might have futuristic dreams like i do, so do not be afraid if you have any of those
 i did my best to explain it as simple as possible,if you have any questions or if there is anything that is hard to get do tell me. Ill be glad to help you all.
+
+http://github.com - automatic!
+[Weightless-Youtube](https://www.youtube.com/watch?v=UfcAVejslrU)

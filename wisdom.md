@@ -34,3 +34,5 @@ Good question. I haven't found a proper way yet that i can say do this this and 
 2) Protect yourself in a water bubble
 
    Why water? It is pure and you can visualize water being filtered easier. Lets say your energy is the water and you have a fountain up              your head that keeps pouring the water. The enegies of other people being oil, once close to you they will just float to the surface and once there just fall off the bubble leaving you on your own happy energy.
+
+This happens to work for me :) hope it does for you to.

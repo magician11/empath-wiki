@@ -17,7 +17,7 @@ Timing on where to share truth is important.
 
 ### Boundaries
 
-We have it hard to set up boundaries to  keep ourselves from being drained out of energy. We have the sould and heart of gold in a way just kind maybe too kind for the new high paced evolving world. **How can we keep ourselves safe from being depleted?**
+We have it hard to set up boundaries to  keep ourselves from being drained out of energy. We have the soul and heart of gold in a way just kind, maybe too kind for the new high paced evolving world. **How can we keep ourselves safe from being depleted?**
 
 "Time will not heal everything, but acceptance might just be a better way to find the healing". We were born to be free as we embrace the freedom, the nature, the unknow and just everything mostly. We cannot be caged in walls we build on our own. Should we put fences around us to keep our energy? **No**. How about accepting the fact that we will always want to help someone even when we are at our knees? Will that change things?
 

@@ -36,3 +36,17 @@ Good question. I haven't found a proper way yet that i can say do this this and 
    Why water? It is pure and you can visualize water being filtered easier. Lets say your energy is the water and you have a fountain up              your head that keeps pouring the water. The enegies of other people being oil, once close to you they will just float to the surface and once there just fall off the bubble leaving you on your own happy energy.
 
 This happens to work for me :) hope it does for you to.
+
+### Affirmations
+
+1) I don’t have to fix everything for everyone. I know I can feel this person’s misery, but there is a lesson in it for them. If I jump in, I’m depriving them of valuable learning.
+
+2) What they are feeling is none of my business. I know I can feel it, but it’s none of my business. Allow them the privacy I would want. Don’t be an emotional peeping Tom! (Repeat until you believe it!)
+
+3) I have to remember that just because I can read everything they’re thinking and feeling, it doesn’t mean they can read me. I must accept others for who they are. We are all just human.
+
+4) I release what is not mine to feel. I release what is not mine to feel. (This one works as a bit of a chant.)
+
+5) This too shall pass. This too shall pass. I can breathe and I can release. This too shall pass. And besides, it’s not even mine. Give it back with love and a hug.
+
+[Source](https://www.elephantjournal.com/2017/04/five-affirmations-to-help-empaths-create-boundaries/)

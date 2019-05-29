@@ -17,3 +17,5 @@ One way to look at the health of an empath is by focusing on 3 main areas..
 If you change the display on your phone to black and white, it'll reduce smart phone addiction and markedly decrease anxiety.
 - [Instructions for Android](https://android.gadgethacks.com/how-to/enable-hidden-grayscale-mode-your-pixel-nexus-no-root-needed-0178857/)
 - [Instructions for iPhone](https://www.macobserver.com/tips/how-to/grayscale-apple-devices/)
+
+Also [health related notes on Earth](/health/earth)

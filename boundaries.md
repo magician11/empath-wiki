@@ -1,7 +1,7 @@
 <!-- TITLE: Protection -->
 <!-- SUBTITLE: One of the most important things every empath should learn and practice -->
 
-![observe, don't absorb](https://media.discordapp.net/attachments/491351272528805920/584688753373609985/observe.png)
+![observe, don't absorb](https://media.discordapp.net/attachments/491351272528805920/584688753373609985/observe.png?width=307&height=300)
 
 # What do boundaries feel like?
 - It is not my job to fix others.

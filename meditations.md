@@ -6,6 +6,8 @@ Guided Meditation Before Sleep: Let Go of the Day ([YouTube](https://www.youtube
 
 Mindfulness Meditation to help Relieve Anxiety and Stress ([YouTube](https://www.youtube.com/watch?v=Fpiw2hH-dlc))
 
+Empath Energy & Emotion Realignment + Protection | Guided Meditation ([YouTube](https://www.youtube.com/watch?v=IBoYXfFdTi0))
+
 # The meditation using the four elements(Air,Water,Earth,Fire)
 
 ## Air

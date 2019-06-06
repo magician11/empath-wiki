@@ -1,4 +1,4 @@
-## Foods
+## Specific Foods
 
 ### Salt
 
@@ -16,3 +16,7 @@ And raw fruit that have antioxidants.
 ## Videos
 
 [Foods That Heal & Foods That Kill](https://www.youtube.com/watch?v=szIUeYWRFN8)
+
+## Posters
+
+![eat colours](https://cdn.discordapp.com/attachments/491202965873360897/585988830876794882/Color_health.png)

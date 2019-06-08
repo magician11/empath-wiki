@@ -1,3 +1,4 @@
+## Lessons
 
 ### Lesson 1
 
@@ -43,3 +44,18 @@ The reward or lesson learned. Valuable
 Why. Because you OWN IT.
 
 it becomes YOU.
+
+## Important People
+
+### Pythagoras
+
+A mini biography of Pythagoras on [YouTube](https://www.youtube.com/watch?v=HYulFhPtoAo)
+
+- Born 570 BC on Greek Isle of Samos
+- Moved to Egypt for 20 years where he learnt mathematics, Egyptian Culture, religion. From there he made a school.
+- He contributed to music theory: intervals between harmonious musical notes always have whole number ratios.
+- He contributed to mathematics: a^2 + b^2 = c^2 and the discovery of irrational numbers
+- Spiritual contribution: reincarnation (all animals are part of the same family)
+- tetraktys: 10 was sacred to him
+![tetraktys](https://proxy.duckduckgo.com/iu/?u=https%3A%2F%2Fnewtopiamagazine.files.wordpress.com%2F2012%2F09%2Ftetraktys-pitagorica.jpg&f=1)
+- Way of life: religious rituals, dietary restrictions, vows of silence

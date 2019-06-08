@@ -49,13 +49,29 @@ it becomes YOU.
 
 ### Pythagoras
 
-A mini biography of Pythagoras on [YouTube](https://www.youtube.com/watch?v=HYulFhPtoAo)
-
 - Born 570 BC on Greek Isle of Samos
-- Moved to Egypt for 20 years where he learnt mathematics, Egyptian Culture, religion. From there he made a school.
-- He contributed to music theory: intervals between harmonious musical notes always have whole number ratios.
+- Moved to Egypt in 535 BCE for 20 years where he learnt mathematics, Egyptian culture, religion.
+- He setup a school in Samos, but left because he refused to get involved in politics. He then setup a school Italy.
+
+The main belief in Pythagoreanism is that everything can be reduced to numbers and be explained by mathematics.
+
+Music
+- He contributed to music theory: intervals between harmonious musical notes always have whole number ratios. So as you divide a string and pluck it, you will go up an octave.
+Mathematics
 - He contributed to mathematics: a^2 + b^2 = c^2 and the discovery of irrational numbers
-- Spiritual contribution: reincarnation (all animals are part of the same family)
 - tetraktys: 10 was sacred to him
 ![tetraktys](https://proxy.duckduckgo.com/iu/?u=https%3A%2F%2Fnewtopiamagazine.files.wordpress.com%2F2012%2F09%2Ftetraktys-pitagorica.jpg&f=1)
+- the pentagram has a lot of cool mathematical properties, including the golden ratio
+
+![pentagram](https://proxy.duckduckgo.com/iu/?u=http%3A%2F%2F3.bp.blogspot.com%2F-nYx7ieJd9LE%2FVgnc3Njrv1I%2FAAAAAAAAAwA%2FHGPVjswQSRg%2Fs1600%2Fpythagorean-pentagram.jpg&f=1)
+
+Spirituality
+- Spiritual contribution: reincarnation (all animals are part of the same family)
 - Way of life: religious rituals, dietary restrictions, vows of silence
+
+- He died in 490 BCE at age 75.
+
+#### Sources
+
+- [A mini biography of Pythagoras](https://www.youtube.com/watch?v=HYulFhPtoAo)
+- [Pythagorean Mathmagic with Donald](https://www.youtube.com/watch?v=4m_ROtUQ5Vk)

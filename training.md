@@ -33,3 +33,13 @@ Your sense of perception is key.
 Meditation with intent. Focus.
 See what is really there. 
 Expirement with purpose to KNOW THE TRUTH
+
+Intent is the key.
+
+Its work is desirable.
+
+The reward or lesson learned. Valuable
+
+Why. Because you OWN IT.
+
+it becomes YOU.

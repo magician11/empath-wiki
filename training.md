@@ -81,3 +81,5 @@ Spirituality
 How To Tell If Someone Is Truly Smart Or Just Average (on [Medium](https://medium.com/accelerated-intelligence/how-to-tell-if-someone-is-truly-smart-or-just-average-a2f0bcac5db2))
 
 > One of the most effective and universal mental models is the 80/20 Rule: the idea that 20 percent of inputs can lead to 80 percent of outputs.
+
+> To apply the 80/20 Rule, at the beginning of the day we can ask ourselves, “Of all the things on my to-do list, what are the 20 percent that will create 80 percent of the results?” When we’re searching for what to read next, we can ask ourselves, “Of all the millions of books I could buy, which ones could really change my life?” When considering who to spend time with, we can ask ourselves, “Which handful of people in my life give me the most happiness, the most meaning, and the greatest connection?” In short, consistently using the 80/20 Rule can help us get leverage by focusing on the few things that really matter and ignoring the majority that don’t.

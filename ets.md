@@ -15,3 +15,4 @@
 ## Evidence of ETs
 
 - [12 Photographs Mainstream Archaeology Does Not Want You to See](https://www.youtube.com/watch?v=87a9-wgkCaQ)
+- [Florida men recall UFO close encounter 50 years ago](https://www.youtube.com/watch?v=_RVakG3uYEk)

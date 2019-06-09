@@ -75,3 +75,9 @@ Spirituality
 
 - [A mini biography of Pythagoras](https://www.youtube.com/watch?v=HYulFhPtoAo)
 - [Pythagorean Mathmagic with Donald](https://www.youtube.com/watch?v=4m_ROtUQ5Vk)
+
+### Lesson 4
+
+How To Tell If Someone Is Truly Smart Or Just Average (on [Medium](https://medium.com/accelerated-intelligence/how-to-tell-if-someone-is-truly-smart-or-just-average-a2f0bcac5db2))
+
+> One of the most effective and universal mental models is the 80/20 Rule: the idea that 20 percent of inputs can lead to 80 percent of outputs.

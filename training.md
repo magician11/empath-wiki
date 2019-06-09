@@ -89,3 +89,5 @@ How To Tell If Someone Is Truly Smart Or Just Average (on [Medium](https://mediu
 Nice way to explain machine learning...
 
 > The numerous dog models on the right (the contrasting cases example) show us that dogs can come in all different colors, sizes, and shapes. At the same time, we can see the underlying element of “dogness” that they all share. This emergent element of “dogness” is a deeper mental model, and humans created the word “dog” to symbolize this mental model. Using that mental model, you can identify an animal as a dog even if you’ve never seen a particular breed of dog before.
+
+[Smart People Really Do Think Faster](https://www.npr.org/templates/story/story.php?storyId=102169531&t=1560101955853): The smarter the person (based on IQ tests), the faster nerve impulses travel in their brain.

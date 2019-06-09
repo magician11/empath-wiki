@@ -69,6 +69,7 @@ Spirituality
 - Spiritual contribution: reincarnation (all animals are part of the same family)
 - Way of life: religious rituals, dietary restrictions, vows of silence
 
+End of life
 - He died in 490 BCE at age 75.
 
 #### Sources

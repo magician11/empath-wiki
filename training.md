@@ -13,6 +13,20 @@ Tools:
 3. Practice till you master your lesson.
 4. Self intention.
 
+> When you first start learning to communicate.
+> The rules of speach and writing are learned.
+>
+> Vocabulary is important. When reading you gain a working understanding of what is written when using the vocabulary In your minds eye. You become used to the vernacular. You are imprinted by the knowledge being presented.
+>
+>The practice of vernacular in a subject is vital. As info may seem dry or boring.
+>It is imperative to keep reading. The moment an idea turns nothing into recognition is worth the effort
+>
+>The habit of ingesting data is important
+>
+>If you want the bubble gum. You must unwrap then chew 
+
+i.e. Don't just learn a few things, use it and put it into practice.
+
 ### Lesson 2
 
 Our soul is part of a Universal whole. We are actually all connected and not separate as we are encouraged to feel.

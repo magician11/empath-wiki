@@ -92,3 +92,9 @@ Nice way to explain machine learning...
 > The numerous dog models on the right (the contrasting cases example) show us that dogs can come in all different colors, sizes, and shapes. At the same time, we can see the underlying element of “dogness” that they all share. This emergent element of “dogness” is a deeper mental model, and humans created the word “dog” to symbolize this mental model. Using that mental model, you can identify an animal as a dog even if you’ve never seen a particular breed of dog before.
 
 [Smart People Really Do Think Faster](https://www.npr.org/templates/story/story.php?storyId=102169531&t=1560101955853): The smarter the person (based on IQ tests), the faster nerve impulses travel in their brain.
+
+### Lesson 5
+
+[Fukushima Radiation Has Contaminated The Entire Pacific Ocean](http://wtsenates.info/Portals/0/Documents/What_Happen_to_the_Reindeer_in_Norway_3-OCT-2016.pdf). It's been far more devastating than we were told. News about it is largely suppressed. There is a significant amount of radiation in the air, and it's circulating around the planet. Governments are secretly doing what they can to neutralise the radiation with chem trails. The dramatic increase in cancers in the world is directly related to this incident. [The nuclear disaster has contaminated the world's largest ocean in only five years and it's still leaking 300 tons of radioactive waste every day.](https://www.zerohedge.com/news/2016-10-02/fukushima-radiation-has-contaminated-entire-pacific-ocean-and-its-going-get-worse)
+
+![Fukushima Nuclear Fallout Chart](https://watchers.news/data/thumbs/798_296/2011/05/fukushima_nuclear_fallout_chart.jpg)

@@ -1,5 +1,9 @@
 ## Specific Foods
 
+### Kelp
+
+Eat it.
+
 ### Salt
 
 We only need 1/2 to 1 whole tsp of salt a day

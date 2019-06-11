@@ -1,9 +1,11 @@
 <!-- TITLE: Media -->
 <!-- SUBTITLE: Media that explore empaths -->
 
-# Important Video Clips
+# Inspiring Video Clips
 
 - [Sadhguru - all human experiences are generated from within](https://www.youtube.com/watch?v=XEiYKJGiLtI)
+  - Brahma Muhurta (3:30am - 3:40am)
+  - Invest in your wellbeing :)
 
 # Documentaries
 

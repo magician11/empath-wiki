@@ -1,6 +1,10 @@
 <!-- TITLE: Media -->
 <!-- SUBTITLE: Media that explore empaths -->
 
+# Documentaries
+
+[Heal](https://www.youtube.com/watch?v=s5Hpm-6Inxc)
+
 # TV Series
 
 ## Star Trek

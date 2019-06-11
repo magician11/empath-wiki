@@ -1,6 +1,10 @@
 <!-- TITLE: Media -->
 <!-- SUBTITLE: Media that explore empaths -->
 
+# Important Video Clips
+
+- [Sadhguru - all human experiences are generated from within](https://www.youtube.com/watch?v=XEiYKJGiLtI)
+
 # Documentaries
 
 [Heal](https://www.youtube.com/watch?v=s5Hpm-6Inxc)

@@ -125,4 +125,5 @@ Nice way to explain machine learning...
   - the target technique: get relaxed, esp hypnagogic state. Pick a person or thing far away from you, esp if it has special meaning to me. Remember all the sensations of being around the target... maintaining conscious focus on the target.
   
 > Inginuity is the most interesting way to learn. Take what you've listened to and build your own.
+
 > Truth makes you happy

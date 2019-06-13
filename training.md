@@ -123,3 +123,5 @@ Nice way to explain machine learning...
   - separation stage: lots of variety; drop down, ascend
   - the key to staying out is to relax. Not to think of the body. We have a silver chord attached to our physical body. So no need to worry about not coming back.
   - the target technique: get relaxed, esp hypnagogic state. Pick a person or thing far away from you, esp if it has special meaning to me. Remember all the sensations of being around the target... maintaining conscious focus on the target.
+  
+  > Inginuity is the most interesting way to learn. Take what you've listened to and build your own.

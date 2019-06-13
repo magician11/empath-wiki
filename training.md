@@ -127,3 +127,7 @@ Nice way to explain machine learning...
 > Inginuity is the most interesting way to learn. Take what you've listened to and build your own.
 
 > Truth makes you happy
+
+> Truth
+> Sets you free
+> For real

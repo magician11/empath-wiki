@@ -131,3 +131,5 @@ Nice way to explain machine learning...
 > Truth
 > Sets you free
 > For real
+
+![Joy = happiness](https://cdn.discordapp.com/attachments/582975748894228498/588842913165737997/walterscott1-2x.jpg)

@@ -117,3 +117,9 @@ Nice way to explain machine learning...
 
 #### Astral projection
 - [How to Astral Project | Beginner's Guide | Powerful Technique (TUTORIAL)](https://www.youtube.com/watch?v=QjactF34biM)
+  - hypnagogic state is a great spring board to do an OBE. Like deep hypnosis.
+  - sleep paralysis is normal
+  - vibrational stage: energy vibrations that can be strong or mild, buzzing sounds
+  - separation stage: lots of variety; drop down, ascend
+  - the key to staying out is to relax. Not to think of the body. We have a silver chord ttached to our physical body. So no need to worry about not coming back.
+  - the target technique: get relaxed, esp hypnagogic state. Pick a person or thing far away from you, esp if it has special meaning to me. Remember all the sensations to the target... maintaining conscious focus on the target.

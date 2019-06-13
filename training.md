@@ -112,3 +112,8 @@ Nice way to explain machine learning...
 [Fukushima Radiation Has Contaminated The Entire Pacific Ocean](http://wtsenates.info/Portals/0/Documents/What_Happen_to_the_Reindeer_in_Norway_3-OCT-2016.pdf). It's been far more devastating than we were told. News about it is largely suppressed. There is a significant amount of radiation in the air, and it's circulating around the planet. Governments are secretly doing what they can to neutralise the radiation with chem trails. The dramatic increase in cancers in the world is directly related to this incident. [The nuclear disaster has contaminated the world's largest ocean in only five years and it's still leaking 300 tons of radioactive waste every day.](https://www.zerohedge.com/news/2016-10-02/fukushima-radiation-has-contaminated-entire-pacific-ocean-and-its-going-get-worse)
 
 ![Fukushima Nuclear Fallout Chart](https://watchers.news/data/thumbs/798_296/2011/05/fukushima_nuclear_fallout_chart.jpg)
+
+### Lesson 6
+
+#### Astral projection
+- [How to Astral Project | Beginner's Guide | Powerful Technique (TUTORIAL)](https://www.youtube.com/watch?v=QjactF34biM)

@@ -124,6 +124,8 @@ Nice way to explain machine learning...
   - the key to staying out is to relax. Not to think of the body. We have a silver chord attached to our physical body. So no need to worry about not coming back.
   - the target technique: get relaxed, esp hypnagogic state. Pick a person or thing far away from you, esp if it has special meaning to me. Remember all the sensations of being around the target... maintaining conscious focus on the target.
   
+#### Truth 
+
 > Inginuity is the most interesting way to learn. Take what you've listened to and build your own.
 
 > Truth makes you happy
@@ -133,6 +135,15 @@ Nice way to explain machine learning...
 > For real
 
 ![Joy = happiness](https://cdn.discordapp.com/attachments/582975748894228498/588842913165737997/walterscott1-2x.jpg)
+
+Society has taught horror as a norm. To make us hate. To keep us separate and against one another. We act in tantrum. Or hate. Or averous desire to control.
+
+So as for ETs, we at this point would not respect them. Or welcome them in peace. We are already planning to fight them. To keep our way of life. To prevent their imagined control over us.
+
+> This is why truth. Honesty is imperative. Opening our heart and mind knowing that it is only way to grow.
+> This is NOT A COMFORTABLE thing to do.
+> It is hard. It is real. It changes everything.
+> You become free.
 
 ### Lesson 7
 

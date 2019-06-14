@@ -23,3 +23,5 @@
 - [Sirius Disclosure Witness Testimony's](https://www.youtube.com/watch?v=rBO8z9pHAuA&list=PLZpT2CX97ZILq9L3qsyP0hdG4EOt9ltGo)
 - [Former Area 51 Scientist Discloses Projects That have Never Been Seen by the Public](https://www.youtube.com/watch?v=e5nJA8Hkvyc)
 - [UFOs and AREA 51: David Adair At Area 51 - Advanced Symbiotic Technology](https://www.youtube.com/watch?v=M0wBXNAiOys)
+  - only a black hole can swallow and control a fusion containment explosion
+  - these engines are capable of light speed. This was available in 1971

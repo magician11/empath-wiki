@@ -133,3 +133,8 @@ Nice way to explain machine learning...
 > For real
 
 ![Joy = happiness](https://cdn.discordapp.com/attachments/582975748894228498/588842913165737997/walterscott1-2x.jpg)
+
+### Lesson 7
+
+- [Masaru Emoto Water Experiment - Water Consciousness](https://www.youtube.com/watch?v=eOp-bxNug5A)
+  - What are the two most important words? Love and Gratitude

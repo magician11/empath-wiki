@@ -22,3 +22,4 @@
 - [An Astronaut's UFO Experience - Gordon Cooper](https://www.youtube.com/watch?v=wsEd_b1C8DY)
 - [Sirius Disclosure Witness Testimony's](https://www.youtube.com/watch?v=rBO8z9pHAuA&list=PLZpT2CX97ZILq9L3qsyP0hdG4EOt9ltGo)
 - [Former Area 51 Scientist Discloses Projects That have Never Been Seen by the Public](https://www.youtube.com/watch?v=e5nJA8Hkvyc)
+- [UFOs and AREA 51: David Adair At Area 51 - Advanced Symbiotic Technology](https://www.youtube.com/watch?v=M0wBXNAiOys)

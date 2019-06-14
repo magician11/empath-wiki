@@ -25,3 +25,5 @@
 - [UFOs and AREA 51: David Adair At Area 51 - Advanced Symbiotic Technology](https://www.youtube.com/watch?v=M0wBXNAiOys)
   - only a black hole can swallow and control a fusion containment explosion
   - these engines are capable of light speed. This was available in 1971
+  - the federal government in America has been lying at least since 1971
+  - Independence Day had some accurate information (based on Area 51)

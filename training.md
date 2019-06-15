@@ -168,3 +168,9 @@ So as for ETs, we at this point would not respect them. Or welcome them in peace
 Twin Flames (from [this article](http://www.thelawofattraction.com/twin-flames/))
 
 It feels safe and natural to be your authentic self around this person.
+
+### Lesson 10
+
+The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY | News June 2019 Part 26](https://www.youtube.com/watch?v=NyI09DpMgoI&feature=youtu.be)
+
+Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](https://www.youtube.com/watch?v=FJcn4KIVjnM)

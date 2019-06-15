@@ -149,3 +149,16 @@ So as for ETs, we at this point would not respect them. Or welcome them in peace
 
 - [Masaru Emoto Water Experiment - Water Consciousness](https://www.youtube.com/watch?v=eOp-bxNug5A)
   - What are the two most important words? Love and Gratitude
+
+### Lesson 8
+
+- [What You Need To Know About The AKASHIC RECORDS And The MASTERMIND Of Mankind](https://www.youtube.com/watch?v=_p9lqnGMK1U)
+  - it's more like a biological function
+  - data is stored in the neural network of the body.. subatomic particles such as the electron. Not just contained to the body
+  - qbit: binary code in supposition.
+  - we work the same way to quantum computers
+  - human beings are connected
+  - we emit radiation in all directions.. which transmit every thing in our cells.. and receive information from others
+  - meditation is important
+  - dreaming is the optimal way to tune into the Akashic record. Write down your question or issue before sleep.
+  - a thought is a physical thing. The human mind is extremely powerful and can control machines.

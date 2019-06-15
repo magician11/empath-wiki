@@ -171,6 +171,8 @@ It feels safe and natural to be your authentic self around this person.
 
 ### Lesson 10
 
-The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY | News June 2019 Part 26](https://www.youtube.com/watch?v=NyI09DpMgoI&feature=youtu.be)
+The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY | News June 2019 Part 26](https://www.youtube.com/watch?v=NyI09DpMgoI)
 
 Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](https://www.youtube.com/watch?v=FJcn4KIVjnM)
+
+[Ancient Aliens: Human-Alien Hybrids (Season 11) | History](https://www.youtube.com/watch?v=ZDXyxxBPmso)

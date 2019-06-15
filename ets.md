@@ -11,6 +11,7 @@
 - [UFO spotted above astronaut as he repairs ISS](https://www.youtube.com/watch?v=zJHSGvTuP5Q)
 - [Pill shaped UFO](https://www.youtube.com/watch?v=n36KOqbwrMY)
 - [Miami Florida Airport UFOs spotted April 29 2019](https://www.youtube.com/watch?v=o3sbFHjy4Ns)
+- [Plasma from lightning](https://youtu.be/_MMSH0yCGtw)
 
 ## Evidence of ETs
 

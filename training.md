@@ -162,3 +162,9 @@ So as for ETs, we at this point would not respect them. Or welcome them in peace
   - meditation is important
   - dreaming is the optimal way to tune into the Akashic record. Write down your question or issue before sleep.
   - a thought is a physical thing. The human mind is extremely powerful and can control machines.
+
+### Lesson 9
+
+Twin Flames (from [this article](http://www.thelawofattraction.com/twin-flames/))
+
+It feels safe and natural to be your authentic self around this person.

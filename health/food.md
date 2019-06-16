@@ -17,6 +17,8 @@ Or even better that water that is magnetized or ionized (forgot the name).
 ### Fruit
 And raw fruit that have antioxidants.
 
+[Fruit is an important part of our diet.](https://youtu.be/RL2k99dcWhk)
+
 ## Videos
 
 [Foods That Heal & Foods That Kill](https://www.youtube.com/watch?v=szIUeYWRFN8)

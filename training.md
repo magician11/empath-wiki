@@ -210,7 +210,6 @@ When you're in the mind space, above the brain space. You get a sense of knowing
 
 This was shut down because the international banking system was threatened by this research.
 
-[Notes on how copper interacts with magnets](https://www.youtube.com/watch?v=sENgdSF8ppA)
+[Notes on how copper interacts with magnets](https://www.youtube.com/watch?v=sENgdSF8ppA). Summary: Lenz's Law And Faraday's Law of Induction to generate electricity and magnetic force fields in copper.
 
-Copper is not magnetic. Dropping a magnet on a copper plate will land softly. When a magnetic field moves through copper, it causes electrons to reorganise in a circular pattern perpendicular to the oncoming magnetic field. They generate a temp magnetic field of their own. The magnetics momentum is converted into electrical current.
--- Lenz's Law And Faraday's Law of Induction to generate electricity and magnetic force fields in copper.
+Copper is not magnetic. Dropping a magnet on a copper plate will land softly. When a magnetic field moves through copper, it causes electrons to reorganise in a circular pattern perpendicular to the oncoming magnetic field. They generate a temp magnetic field of their own. The magnets momentum is converted into electrical current.

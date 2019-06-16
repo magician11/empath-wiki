@@ -198,10 +198,14 @@ Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](
 
 Notes from [this video](https://www.youtube.com/watch?v=2j3wBldVBHo)
 
-Free energy comes from our surroundings. Nikola Tesla could transmit electrical power through the ionosphere without wires or poles. Thus treeing up our time to pursue our creative interests. JP Morgan decided to shut this idea down (it wasn't going to make him money).
+Free energy comes from our surroundings. Nikola Tesla could transmit electrical power through the ionosphere without wires or poles. We're swimming in nature. Thus treeing up our time to pursue our creative interests. JP Morgan decided to shut this idea down (it wasn't going to make him money).
 
 [Otis Carr](https://en.wikipedia.org/wiki/Otis_T._Carr) put in a patent for a levitation device, and they would only award him a patent if they removed the levitation part.. so it was an amusement park patent.
 
 The flying saucer was powered by magnets in nature; 12 double tetrahedrons (utrons), 12 horse shoe magnets. Counter-rotating wheels. As the utrons went through the magnetic field it would generate vibrational power. When it gets to the resonant frequency of your surroundings, it goes to a zero point. From there you can go anywhere you want.
 
-The craft is operated by your mind. Synergetic connection; the craft has a consciousness of its own. They levitate and teleport. They traverse through multidimensions. Giant crystal ball in a gyroscopic holder with lazers pointing up into it. Focusing thoughts drive it.
+The craft is operated by your mind. Synergetic connection; the craft has a consciousness of its own. They levitate and teleport. They traverse through multidimensions. Giant crystal ball in a gyroscopic holder with lazers pointing up into it. Focusing thoughts drive it. To be able to operate this, you need to raise your consciousness.
+
+When you're in the mind space, above the brain space. You get a sense of knowing, and that you are an infinite being. UFOs are toys to point to this realisation.
+
+This was shut down because the international banking system was threatened by this research.

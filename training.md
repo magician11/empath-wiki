@@ -203,3 +203,5 @@ Free energy comes from our surroundings. Nikola Tesla could transmit electrical 
 [Otis Carr](https://en.wikipedia.org/wiki/Otis_T._Carr) put in a patent for a levitation device, and they would only award him a patent if they removed the levitation part.. so it was an amusement park patent.
 
 The flying saucer was powered by magnets in nature; 12 double tetrahedrons (utrons), 12 horse shoe magnets. Counter-rotating wheels. As the utrons went through the magnetic field it would generate vibrational power. When it gets to the resonant frequency of your surroundings, it goes to a zero point. From there you can go anywhere you want.
+
+The craft is operated by your mind. Synergetic connection; the craft has a consciousness of its own. They levitate and teleport. They traverse through multidimensions. Giant crystal ball in a gyroscopic holder with lazers pointing up into it. Focusing thoughts drive it.

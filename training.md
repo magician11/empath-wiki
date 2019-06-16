@@ -193,3 +193,9 @@ Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](
 12. Despite all this, self-actualized people are not perfect.
 
 -- [HuffPost](https://www.huffpost.com/entry/maslow-the-12-characteris_b_7836836)
+
+### Lesson 12
+
+How UFOs essentially work: https://www.youtube.com/watch?v=2j3wBldVBHo
+
+Free energy comes from our surroundings. Nikola Tesla could transmit electrical power through the ionosphere without wires or poles. Thus treeing up our time to pursue our creative interests. JP Morgan decided to shut this idea down (it wasn't going to make him money).

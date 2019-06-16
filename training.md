@@ -210,6 +210,8 @@ When you're in the mind space, above the brain space. You get a sense of knowing
 
 This was shut down because the international banking system was threatened by this research.
 
+Addendum: Travelling in time in your physical body is not possible. But you can astral project. If you build a machine that is conscious, then it can come back. When the crystal ball is powered up, it's interdimensionally in flux. The whole system is electromagnetic, so they need a boost from lightning to boost out. If you can go into the past you can go into the future. Space is dangerous. Even UFOs breakdown. ETs likely peek into the future to avert tragedies.
+
 [Notes on how copper interacts with magnets](https://www.youtube.com/watch?v=sENgdSF8ppA). Summary: Lenz's Law And Faraday's Law of Induction to generate electricity and magnetic force fields in copper.
 
 Copper is not magnetic. Dropping a magnet on a copper plate will land softly. When a magnetic field moves through copper, it causes electrons to reorganise in a circular pattern perpendicular to the oncoming magnetic field. They generate a temp magnetic field of their own. The magnets momentum is converted into electrical current.

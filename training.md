@@ -176,3 +176,20 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
 Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](https://www.youtube.com/watch?v=FJcn4KIVjnM)
 
 [Ancient Aliens: Human-Alien Hybrids (Season 11) | History](https://www.youtube.com/watch?v=ZDXyxxBPmso)
+
+### Lesson 11
+
+1. Self-actualized people embrace the unknown and the ambiguous.
+2. They accept themselves, together with all their flaws.
+3. They prioritize and enjoy the journey, not just the destination.
+4. While they are inherently unconventional, they do not seek to shock or disturb.
+5. They are motivated by growth, not by the satisfaction of needs.
+6. Self-actualized people have purpose.
+7. They are not troubled by the small things.
+8. Self-actualized people are grateful.
+9. They share deep relationships with a few, but also feel identification and affection towards the entire human race.
+10. Self-actualized people are humble.
+11. Self-actualized people resist enculturation.
+12. Despite all this, self-actualized people are not perfect.
+
+-- [HuffPost](https://www.huffpost.com/entry/maslow-the-12-characteris_b_7836836)

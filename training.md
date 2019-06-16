@@ -196,7 +196,7 @@ Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](
 
 ### Lesson 12
 
-Notes from [this video](https://www.youtube.com/watch?v=2j3wBldVBHo)
+Notes from [this video on Nikola Tesla's work](https://www.youtube.com/watch?v=2j3wBldVBHo)
 
 Free energy comes from our surroundings. Nikola Tesla could transmit electrical power through the ionosphere without wires or poles. We're swimming in nature. Thus treeing up our time to pursue our creative interests. JP Morgan decided to shut this idea down (it wasn't going to make him money).
 
@@ -209,3 +209,8 @@ The craft is operated by your mind. Synergetic connection; the craft has a consc
 When you're in the mind space, above the brain space. You get a sense of knowing, and that you are an infinite being. UFOs are toys to point to this realisation.
 
 This was shut down because the international banking system was threatened by this research.
+
+[Notes on how copper interacts with magnets](https://www.youtube.com/watch?v=sENgdSF8ppA)
+
+Copper is not magnetic. Dropping a magnet on a copper plate will land softly. When a magnetic field moves through copper, it causes electrons to reorganise in a circular pattern perpendicular to the oncoming magnetic field. They generate a temp magnetic field of their own. The magnetics momentum is converted into electrical current.
+-- Lenz's Law And Faraday's Law of Induction to generate electricity and magnetic force fields in copper.

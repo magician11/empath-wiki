@@ -12,6 +12,7 @@
 - [Pill shaped UFO](https://www.youtube.com/watch?v=n36KOqbwrMY)
 - [Miami Florida Airport UFOs spotted April 29 2019](https://www.youtube.com/watch?v=o3sbFHjy4Ns)
 - [Plasma from lightning](https://youtu.be/_MMSH0yCGtw)
+- [Unexplainable UFO sighting leaves stargazers in awe - 16 Jun 2019](https://www.youtube.com/watch?v=phYF6NTiV4I)
 
 ## Evidence of ETs
 

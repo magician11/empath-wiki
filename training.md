@@ -128,9 +128,11 @@ Nice way to explain machine learning...
 - People who are an intellectual, have restraints from exploring their internal landscape.
 - It's more about the province of the practitioner not the technique.
 - The esoteric method is valid. Your consciousness is everywhere in the Universe.
-- The scientific method is limited or incapable in translating certain things like love. Knowingness is a higher form of intellect. Science doesn't like anecdotal or experiential. So you cannot validate, for example, dream states. So much of human existence is beyond scientific validation. Science is insufficient.
+- The scientific method is limited or incapable in translating certain things like love. Knowingness is a higher form of intellect. Science doesn't like anecdotal or experiential. So you cannot validate, for example, dream states. So much of human existence is beyond scientific validation. Science is insufficient, because it creates doubt.
 - Neutrality is the primary tool to be able to remote view.
-- 
+- Machines are best used when our consciousness is extended into it.
+- People who have more life experience have more languaging in how to describe a remote view.
+- It's absolutely more important to be truthful than right.
   
 #### Truth 
 

@@ -124,7 +124,7 @@ Nice way to explain machine learning...
   - the key to staying out is to relax. Not to think of the body. We have a silver chord attached to our physical body. So no need to worry about not coming back.
   - the target technique: get relaxed, esp hypnagogic state. Pick a person or thing far away from you, esp if it has special meaning to me. Remember all the sensations of being around the target... maintaining conscious focus on the target.
   
-[Randy Veitenheimer](https://energydoktor.com/) [speaks about his esoteric approach to remote viewing](https://www.youtube.com/watch?v=SGSZeozFvm0)
+[Randy Veitenheimer](https://energydoktor.com/) was interviewed and [speaks about his esoteric approach to remote viewing](https://www.youtube.com/watch?v=SGSZeozFvm0)
 - People who are an intellectual, have restraints from exploring their internal landscape.
 - It's more about the province of the practitioner not the technique.
 - The esoteric method is valid. Your consciousness is everywhere in the Universe.

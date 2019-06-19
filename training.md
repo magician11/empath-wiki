@@ -225,3 +225,13 @@ Addendum: Travelling in time in your physical body is not possible. But you can 
 [Notes on how copper interacts with magnets](https://www.youtube.com/watch?v=sENgdSF8ppA). Summary: Lenz's Law And Faraday's Law of Induction to generate electricity and magnetic force fields in copper.
 
 Copper is not magnetic. Dropping a magnet on a copper plate will land softly. When a magnetic field moves through copper, it causes electrons to reorganise in a circular pattern perpendicular to the oncoming magnetic field. They generate a temp magnetic field of their own. The magnets momentum is converted into electrical current.
+
+### Lesson 3
+
+[Forget Wi-Fi. Meet the new Li-Fi Internet | Harald Haas](https://youtu.be/iHWIZsIBj3Q)
+
+- There is a  rich infrastructure of LEDs
+- solar cells in solar panels absorbs light and converts it into electrical energy
+- if incoming light fluctuates, so does the energy harvested from the solar cell
+- 50Mb/s data transfer possible so definitely fast enough for video streaming
+- in essence: the solar cell has become a receiver for high speed wireless signals encoded in light, while it maintains it's primary function as an energy harvesting device

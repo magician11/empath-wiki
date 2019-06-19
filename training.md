@@ -191,6 +191,9 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
   - excursions are super hard to find
   - UVR stimulates mutations that eventually affect the genome
   - Humans might be ok with the change in UVR, but other species are likely to die out
+  
+So why the focus on climate change?
+They dont want you to know were facing an end. They want you to spend your money helping them get away.
 
 ### Lesson 11
 

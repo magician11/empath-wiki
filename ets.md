@@ -29,3 +29,5 @@
   - these engines are capable of light speed. This was available in 1971
   - the federal government in America has been lying at least since 1971
   - Independence Day had some accurate information (based on Area 51)
+- Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](https://www.youtube.com/watch?v=FJcn4KIVjnM)
+- [Ancient Aliens: Human-Alien Hybrids (Season 11) | History](https://www.youtube.com/watch?v=ZDXyxxBPmso)

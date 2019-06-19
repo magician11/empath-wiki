@@ -183,9 +183,7 @@ It feels safe and natural to be your authentic self around this person.
 
 The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY | News June 2019 Part 26](https://www.youtube.com/watch?v=NyI09DpMgoI)
 
-Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](https://www.youtube.com/watch?v=FJcn4KIVjnM)
-
-[Ancient Aliens: Human-Alien Hybrids (Season 11) | History](https://www.youtube.com/watch?v=ZDXyxxBPmso)
+[What the Earth looks like after a 40 degree axis shift](https://www.youtube.com/watch?v=-l0SC3bRLn8)
 
 ### Lesson 11
 
@@ -226,7 +224,7 @@ Addendum: Travelling in time in your physical body is not possible. But you can 
 
 Copper is not magnetic. Dropping a magnet on a copper plate will land softly. When a magnetic field moves through copper, it causes electrons to reorganise in a circular pattern perpendicular to the oncoming magnetic field. They generate a temp magnetic field of their own. The magnets momentum is converted into electrical current.
 
-### Lesson 3
+### Lesson 13
 
 [Forget Wi-Fi. Meet the new Li-Fi Internet | Harald Haas](https://youtu.be/iHWIZsIBj3Q)
 

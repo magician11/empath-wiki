@@ -193,7 +193,9 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
   - Humans might be ok with the change in UVR, but other species are likely to die out
   
 So why the focus on climate change?
-They dont want you to know were facing an end. They want you to spend your money helping them get away.
+> They dont want you to know were facing an end. They want you to spend your money helping them get away.
+
+> It is important to make peace with yourself and all others. That way your living in happiness. Time will be what it is. Your life too.
 
 ### Lesson 11
 

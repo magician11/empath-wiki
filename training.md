@@ -188,6 +188,9 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
 [Magnetic Excursion](https://www.youtube.com/watch?v=MvG0hS0BEzc)
   - Magnetic excursion very short lived reversals
   - low field strength enhances UVR
+  - excursions are super hard to find
+  - UVR stimulates mutations that eventually affect the genome
+  - Humans might be ok with the change in UVR, but other species are likely to die out
 
 ### Lesson 11
 

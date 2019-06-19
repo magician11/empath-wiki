@@ -185,6 +185,10 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
 
 [What the Earth looks like after a 40 degree axis shift](https://www.youtube.com/watch?v=-l0SC3bRLn8)
 
+[Magnetic Excursion](https://www.youtube.com/watch?v=MvG0hS0BEzc)
+  - Magnetic excursion very short lived reversals
+  - low field strength enhances UVR
+
 ### Lesson 11
 
 1. Self-actualized people embrace the unknown and the ambiguous.

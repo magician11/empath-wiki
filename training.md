@@ -245,3 +245,7 @@ Copper is not magnetic. Dropping a magnet on a copper plate will land softly. Wh
 - if incoming light fluctuates, so does the energy harvested from the solar cell
 - 50Mb/s data transfer possible so definitely fast enough for video streaming
 - in essence: the solar cell has become a receiver for high speed wireless signals encoded in light, while it maintains it's primary function as an energy harvesting device
+
+### Lesson 14
+
+Setting up bases on Earth's moon or Mars. It's basically a cover though. Earth is about to go through catastrophic changes. So the plan is to re-build on Earth actually. It'll be easier to build on a devastated Earth, than a completely barren Mars.

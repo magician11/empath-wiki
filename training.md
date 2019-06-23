@@ -249,3 +249,9 @@ Copper is not magnetic. Dropping a magnet on a copper plate will land softly. Wh
 ### Lesson 14
 
 Setting up bases on Earth's moon or Mars. It's basically a cover though. Earth is about to go through catastrophic changes. So the plan is to re-build on Earth actually. It'll be easier to build on a devastated Earth, than a completely barren Mars.
+
+### Lesson 15
+
+ETs
+
+Cyanobacteria evolved from single-celled organisms to photosynthesise sunlight, creating their sugars (their own energy sources), and releasing oxygen into the atmosphere. Oxygen almost wiped out all life on Earth. This created a massive ice age. -- [source](https://www.youtube.com/watch?v=dO2xx-aeZ4w)

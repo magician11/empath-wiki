@@ -173,6 +173,8 @@ So as for ETs, we at this point would not respect them. Or welcome them in peace
   - dreaming is the optimal way to tune into the Akashic record. Write down your question or issue before sleep.
   - a thought is a physical thing. The human mind is extremely powerful and can control machines.
 
+Geniuses like [Srinivasa Ramanujan](https://en.wikipedia.org/wiki/Srinivasa_Ramanujan), Albert Einstein, [Friedrich August Kekulé](https://en.wikipedia.org/wiki/August_Kekul%C3%A9), and [Dmitri Mendeleev](https://en.wikipedia.org/wiki/Dmitri_Mendeleev) [received their knowledge from dreams](https://www.youtube.com/watch?v=yrfBuGMLXyg).
+
 ### Lesson 9
 
 Twin Flames (from [this article](http://www.thelawofattraction.com/twin-flames/))

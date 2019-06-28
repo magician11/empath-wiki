@@ -257,3 +257,5 @@ Setting up bases on Earth's moon or Mars. It's basically a cover though. Earth i
 ETs
 
 Cyanobacteria evolved from single-celled organisms to photosynthesise sunlight, creating their sugars (their own energy sources), and releasing oxygen into the atmosphere. Oxygen almost wiped out all life on Earth. This created a massive ice age. -- [source](https://www.youtube.com/watch?v=dO2xx-aeZ4w)
+
+People will panic if ET just lands somewhere. A good trial happened to be [The War Of the Worlds](https://en.wikipedia.org/wiki/The_War_of_the_Worlds_(radio_drama))

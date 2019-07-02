@@ -7,6 +7,8 @@ Know all that is knowable, then proceed. Remain where you are until you know.
 We are all in a classroom which is our planet Earth.
 Our books are nature, the elements, the visual panorama of life, and living together.
 
+For every action, there is an equal and opposite reaction.
+
 Tools:
 1. Make sure all your communication is truthful and intentional.
 2. Listen to understand.

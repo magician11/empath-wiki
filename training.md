@@ -254,6 +254,8 @@ Copper is not magnetic. Dropping a magnet on a copper plate will land softly. Wh
 
 Setting up bases on Earth's moon or Mars. It's basically a cover though. Earth is about to go through catastrophic changes. So the plan is to re-build on Earth actually. It'll be easier to build on a devastated Earth, than a completely barren Mars.
 
+- [HASSELL + EOC presents MARS HABITAT](https://www.youtube.com/watch?v=AIrH01N9AsE)
+
 ### Lesson 15
 
 ETs

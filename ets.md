@@ -33,6 +33,7 @@
 - Legit crop circles: [Something Created This! What Are They Trying to Tell Us..](https://www.youtube.com/watch?v=FJcn4KIVjnM)
 - [Ancient Aliens: Human-Alien Hybrids (Season 11) | History](https://www.youtube.com/watch?v=ZDXyxxBPmso)
 - [Bob Lazar](https://www.youtube.com/watch?v=VjQNJR4Wni4) is the real deal. He knows a lot.
+- [Ancient Aliens 27,000 years ago, the mysterious Aztlán Stone, Astronaut?](https://www.youtube.com/watch?v=SPISxqpEmSQ)
 
 ## Interviews
 

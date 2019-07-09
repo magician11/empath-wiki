@@ -196,6 +196,13 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
   - UVR stimulates mutations that eventually affect the genome
   - Humans might be ok with the change in UVR, but other species are likely to die out
   
+[Scientists ID three causes of Earth's spin axis drift](https://climate.nasa.gov/news/2805/scientists-id-three-causes-of-earths-spin-axis-drift/)
+- contemporary mass loss primarily in Greenland: ice melting into the ocean redistributes mass
+- glacial rebound: ice depressed the Earth, as it melts, the land rises again
+- mantle convection: the vertical circulation of rocks in the Earth's mantle
+
+The spin axis is drifting at about 10 centimeters per year.
+  
 So why the focus on climate change?
 > They dont want you to know were facing an end. They want you to spend your money helping them get away.
 

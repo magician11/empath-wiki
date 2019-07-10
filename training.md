@@ -208,8 +208,10 @@ So why the focus on climate change?
 
 > It is important to make peace with yourself and all others. That way your living in happiness. Time will be what it is. Your life too.
 
-2000 miles beneath our feet is the molten core... liquid iron.. creates the Earth's magnetic field. The core's ability to generate a magentic field seems to be faltering. Over the last 150 years, the magnetic north pole has wandered 685 miles across northern Canada. Right now it's moving 25 miles/year to the north west. Magnetic poles look like they are going to flip. Flips happen every 780 000 years. Maybe 40 miles/year now. Magentic north is moving, so airports like Tampa, Florida that are calibrated by compass are beign re-painted and re-designated numbers. Every 5 years it's position is updated. NASA says the flip happens every 200 000 years or so. Everytime it flips it leaves a signature in the rocks.. specifically looking at minerals in lava samples.
--- [source](https://www.youtube.com/watch?v=YQgxYZwszpg)
+2000 miles beneath our feet is the molten core which is comprised of liquid iron. This creates the Earth's magnetic field. The core's ability to generate a magentic field seems to be faltering though. Over the last 150 years, the magnetic north pole has wandered 685 miles across northern Canada. Right now it's moving 25-40 miles/year to the north west. 
+
+Magnetic poles look like they are going to flip. Last flip happened 780 000 years ago. NASA says the flip happens every 200 000 years or so. Magentic north is moving, so airports like Tampa, Florida that are calibrated by compass are being re-painted and re-designated numbers. Every 5 years it's position is updated. Everytime it flips it leaves a signature in the rocks.. specifically looking at minerals in lava samples.
+- [source](https://www.youtube.com/watch?v=YQgxYZwszpg)
 
 ### Lesson 11
 

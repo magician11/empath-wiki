@@ -183,7 +183,7 @@ Twin Flames (from [this article](http://www.thelawofattraction.com/twin-flames/)
 
 It feels safe and natural to be your authentic self around this person.
 
-### Lesson 10
+### Lesson 10 (changes in and on Earth)
 
 The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY | News June 2019 Part 26](https://www.youtube.com/watch?v=NyI09DpMgoI)
 
@@ -201,12 +201,15 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
 - glacial rebound: ice depressed the Earth, as it melts, the land rises again
 - mantle convection: the vertical circulation of rocks in the Earth's mantle
 
-The spin axis is drifting at about 10 centimeters per year.
+The spin axis is drifting at about 10 centimeters per year. (not correct.. fudged data).
   
 So why the focus on climate change?
 > They dont want you to know were facing an end. They want you to spend your money helping them get away.
 
 > It is important to make peace with yourself and all others. That way your living in happiness. Time will be what it is. Your life too.
+
+2000 miles beneath our feet is the molten core... liquid iron.. creates the Earth's magnetic field. The core's ability to generate a magentic field seems to be faltering. Over the last 150 years, the magnetic north pole has wandered 685 miles across northern Canada. Right now it's moving 25 miles/year to the north west. Magnetic poles look like they are going to flip. Flips happen every 780 000 years. Maybe 40 miles/year now. Magentic north is moving, so airports like Tampa, Florida that are calibrated by compass are beign re-painted and re-designated numbers. Every 5 years it's position is updated. NASA says the flip happens every 200 000 years or so. Everytime it flips it leaves a signature in the rocks.. specifically looking at minerals in lava samples.
+-- [source](https://www.youtube.com/watch?v=YQgxYZwszpg)
 
 ### Lesson 11
 

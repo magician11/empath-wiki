@@ -216,6 +216,8 @@ Magnetic poles look like they are going to flip. Last flip happened 780 000 year
 The Earth's axis is tilted at 23.5 degrees. It rotates around the axis once per day. When the axis is tilted towards the sun, the northern hemisphere will experience summer, and the southern hemisphere winter. The wobble of the axis does a full rotation every 26000 years. So every 13000 years the seasons flip.
 - [source](https://www.youtube.com/watch?v=9n04SEzuvXo)
 
+Images of the Earth shifting while a normal weather report is shown: http://divulgence.net/axis_shift_imagery.htm
+
 ### Lesson 11
 
 1. Self-actualized people embrace the unknown and the ambiguous.

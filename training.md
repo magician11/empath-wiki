@@ -199,7 +199,12 @@ The Earth is going through a slow shift: [STRANGE AND UNUSUAL EVENTS IN TURKEY |
 [Scientists ID three causes of Earth's spin axis drift](https://climate.nasa.gov/news/2805/scientists-id-three-causes-of-earths-spin-axis-drift/)
 - contemporary mass loss primarily in Greenland: ice melting into the ocean redistributes mass
 - glacial rebound: ice depressed the Earth, as it melts, the land rises again
-- mantle convection: the vertical circulation of rocks in the Earth's mantle
+- 
+
+The 3 basic conditions to generate the planet's magnetic field
+1. A large volume of electrically conducting fluid, the iron-rich liquid outer core of Earth.
+![earth drawn to scale](https://upload.wikimedia.org/wikipedia/commons/0/07/Earth_poster.svg)
+2. Convection in the outer core: hot buoyant iron in the lower outer core rises in blobs. When it reaches the overlying mantle, it cools, solidifies and sinks.
 
 The spin axis is drifting at about 10 centimeters per year. (not correct.. fudged data).
   

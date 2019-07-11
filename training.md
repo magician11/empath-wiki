@@ -205,6 +205,8 @@ The 3 basic conditions to generate the planet's magnetic field
 1. A large volume of electrically conducting fluid, the iron-rich liquid outer core of Earth.
 ![earth drawn to scale](https://upload.wikimedia.org/wikipedia/commons/0/07/Earth_poster.svg)
 2. Convection in the outer core: hot buoyant iron in the lower outer core rises in blobs. When it reaches the overlying mantle, it cools, solidifies and sinks.
+3. Earth's rotation, through the Coriolis effect, deflects rising fluids inside Earths core.
+-[source](https://www.scientificamerican.com/article/probing-the-geodynamo-2005-07/)
 
 The spin axis is drifting at about 10 centimeters per year. (not correct.. fudged data).
   

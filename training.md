@@ -231,6 +231,8 @@ So why the focus on climate change?
 Magnetic poles look like they are going to flip. Last flip happened 780 000 years ago. NASA says the flip happens every 200 000 years or so. Magentic north is moving, so airports like Tampa, Florida that are calibrated by compass are being re-painted and re-designated numbers. Every 5 years it's position is updated. Everytime it flips it leaves a signature in the rocks.. specifically looking at minerals in lava samples.
 - [source](https://www.youtube.com/watch?v=YQgxYZwszpg)
 
+A summary of terms relating to rock magnetism and sea floor spreading [here](http://www3.geosc.psu.edu/~jte2/geosc20/lect26.html).
+
 The Earth's axis is tilted at 23.5 degrees. It rotates around the axis once per day. When the axis is tilted towards the sun, the northern hemisphere will experience summer, and the southern hemisphere winter. The wobble of the axis does a full rotation every 26000 years. So every 13000 years the seasons flip.
 - [source](https://www.youtube.com/watch?v=9n04SEzuvXo)
 

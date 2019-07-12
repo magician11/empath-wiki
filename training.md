@@ -93,7 +93,7 @@ End of life
 - [A mini biography of Pythagoras](https://www.youtube.com/watch?v=HYulFhPtoAo)
 - [Pythagorean Mathmagic with Donald](https://www.youtube.com/watch?v=4m_ROtUQ5Vk)
 
-### Lesson 4
+### Lesson 4 (our brain)
 
 How To Tell If Someone Is Truly Smart Or Just Average (on [Medium](https://medium.com/accelerated-intelligence/how-to-tell-if-someone-is-truly-smart-or-just-average-a2f0bcac5db2))
 
@@ -108,6 +108,17 @@ Nice way to explain machine learning...
 > The numerous dog models on the right (the contrasting cases example) show us that dogs can come in all different colors, sizes, and shapes. At the same time, we can see the underlying element of “dogness” that they all share. This emergent element of “dogness” is a deeper mental model, and humans created the word “dog” to symbolize this mental model. Using that mental model, you can identify an animal as a dog even if you’ve never seen a particular breed of dog before.
 
 [Smart People Really Do Think Faster](https://www.npr.org/templates/story/story.php?storyId=102169531&t=1560101955853): The smarter the person (based on IQ tests), the faster nerve impulses travel in their brain.
+
+#### Electroencephalography: the study of brainwaves.
+>The brain has billions of neurons, and each individual neuron connects (on average) to thousands of others. Communication happens between them through small electrical currents that travel along the neurons and throughout enormous networks of brain circuits.
+
+>When many neurons interact in this way at the same time, this activity is strong enough to be detected even outside the brain. By placing electrodes on the scalp, this activity can be amplified, analyzed, and visualized. (EEG - electric brain graph)
+
+>One way that EEG ‘brainwaves’ convey information is in their rate of repetition. aka. frequencies They've been divided up into 5 categories each corresponding to a Greek letter: gamma, beta, alpha, theta, delta
+
+![human brainwaves](https://choosemuse.com/app/uploads/2018/10/storage.googleapis.com-486681944373284.jpg)
+
+- [source](https://choosemuse.com/blog/a-deep-dive-into-brainwaves-brainwave-frequencies-explained-2/)
 
 ### Lesson 5
 

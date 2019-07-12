@@ -118,7 +118,7 @@ Nice way to explain machine learning...
 
 ![human brainwaves](https://choosemuse.com/app/uploads/2018/10/storage.googleapis.com-486681944373284.jpg)
 
-- [source](https://choosemuse.com/blog/a-deep-dive-into-brainwaves-brainwave-frequencies-explained-2/)
+[source](https://choosemuse.com/blog/a-deep-dive-into-brainwaves-brainwave-frequencies-explained-2/)
 
 ### Lesson 5
 

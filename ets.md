@@ -14,6 +14,7 @@
 - [Plasma from lightning](https://youtu.be/_MMSH0yCGtw)
 - [Unexplainable UFO sighting leaves stargazers in awe - 16 Jun 2019](https://www.youtube.com/watch?v=phYF6NTiV4I)
 - [ET craft passing in front of the sun](https://www.youtube.com/watch?v=tZLsDCuy_7Q)
+- [Invisible Alien Spaceships Are Watching Us (Explanation) Color Night Vision Camera](https://youtu.be/qYsNJMCXHUE)
 
 ## Evidence of ETs
 

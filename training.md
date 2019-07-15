@@ -301,6 +301,10 @@ Cyanobacteria evolved from single-celled organisms to photosynthesise sunlight, 
 
 People will panic if ET just lands somewhere. A good trial happened to be [The War Of the Worlds](https://en.wikipedia.org/wiki/The_War_of_the_Worlds_(radio_drama))
 
-### Lesson 16
+### Lesson 16 (solar minimum)
 
 [Solar Minimum](https://www.youtube.com/watch?v=Br0YcdIhj_M) - Solar Cycle 25 is Coming
+
+### Lesson 17 (space)
+
+- [Buckminsterfullerene: precursor to life](https://www.youtube.com/watch?v=EFPbHRTIyvc)

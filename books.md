@@ -1,5 +1,11 @@
 # Non-fiction
 
+## You Can Heal Your Life
+
+by Louise L. Hay
+
+[goodreads](https://www.goodreads.com/book/show/129603.You_Can_Heal_Your_Life)
+
 ## A New Earth: Awakening to Your Life's Purpose
 
 by Eckhart Tolle

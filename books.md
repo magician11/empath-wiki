@@ -1,8 +1,12 @@
-<!-- TITLE: Books -->
-<!-- SUBTITLE: Recommended by empaths for empaths -->
-
 # Non-fiction
-Chariots of the Gods?
+
+## A New Earth: Awakening to Your Life's Purpose
+
+by Eckhart Tolle
+
+[goodreads](https://www.goodreads.com/book/show/76334.A_New_Earth)
+
+## Chariots of the Gods?
 By Erich von Däniken
 [Wikipedia](https://en.wikipedia.org/wiki/Chariots_of_the_Gods%3F)
 

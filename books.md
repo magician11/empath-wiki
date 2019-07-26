@@ -1,11 +1,11 @@
 # Non-fiction
 
-# Destiny of Souls: New Case Studies of Life Between Lives
+## Destiny of Souls: New Case Studies of Life Between Lives
 by Dr. Michael Newton
 
 [Amazon](https://www.amazon.co.uk/Destiny-Souls-Studies-Between-Lives/dp/1567184995)
 
-# Journey of Souls
+## Journey of Souls
 by Dr. Michael Newton
 
 [The Newton Institute](https://www.newtoninstitute.org/books/journey-of-souls-dr-michael-newton-1994/)

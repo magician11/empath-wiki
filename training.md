@@ -309,3 +309,13 @@ People will panic if ET just lands somewhere. A good trial happened to be [The W
 
 - [Buckminsterfullerene: precursor to life](https://www.youtube.com/watch?v=EFPbHRTIyvc)
 - the best image of space we have (and the largest image ever) from the [Hubble Telescope](https://www.youtube.com/watch?v=8EKl9aF4NnM)
+
+### Lesson 18 (how ET craft are powered)
+
+The fuel for ET craft is moscovium (element 115). Element 115 does not naturally occur on Earth. This element is stable.
+
+Element 115 is in the top of the reactor of the craft. The base has a particle accelerator. So a particle is accelerated to a high speed, then deflected up a small tube aimed at the 115. This transmutes the 115 into anti-matter. The anti-matter reacts with a gas and is converted into 100% energy and a gravitational wave. The heat energy is converted into electrical power by a thermal-electric converter to power subsystems on the craft. The gravitational waves propel the craft. The craft thus generates it's own gravitational field. Being in that distortion, inertia has no effect.
+
+ET craft look like a ball of light at night because the high energy source from the craft interact with our gas atmosphere (oxygen, nitrogen). Applying enough energy to gas molecules, emit photons (light).
+
+Because gravity bends, time, space and light, so we don't see the craft as they are.

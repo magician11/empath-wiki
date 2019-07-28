@@ -333,3 +333,7 @@ ET craft look like a ball of light at night because the high energy source from 
 Because gravity bends, time, space and light, so we don't see the craft as they are.
 
 In terms of frequency and amplitude these craft are capable of jumping space.
+
+#### Effects on humans
+
+The gravitational effect surrounding the craft is disruptive to human cell biology. It is unsafe to be exposed for extended periods of time around them.

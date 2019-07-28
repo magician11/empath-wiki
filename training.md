@@ -314,6 +314,10 @@ People will panic if ET just lands somewhere. A good trial happened to be [The W
 
 There are two systems aboard the craft.
 
+#### Starting up
+
+The main starter source of power for the craft is electricity. It is stored on board and can be harvested from natural sources.
+
 #### Propulsion
 The fuel for ET craft is moscovium (element 115). Element 115 does not naturally occur on Earth. This element is stable.
 

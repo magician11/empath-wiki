@@ -312,8 +312,6 @@ People will panic if ET just lands somewhere. A good trial happened to be [The W
 
 ### Lesson 18 (how ET craft are powered)
 
-There are two systems aboard the craft.
-
 #### Starting up
 
 The main starter source of power for the craft is electricity. It is stored on board and can be harvested from natural sources.

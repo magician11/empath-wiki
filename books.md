@@ -6,6 +6,11 @@
 
 # Non-fiction
 
+## The Celestine Prophecy
+by James Redfield
+
+[Amazon](https://www.amazon.co.uk/Celestine-Prophecy-James-Redfield/dp/0553409026)
+
 ## The Alchemist
 by Paulo Coelho
 

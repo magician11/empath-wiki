@@ -1,10 +1,15 @@
-# Index
+A collection of books that various members have recommended..
 
 - [Non fiction](#non-fiction)
 - [Fiction](#fiction)
 - [Other links](#other-links)
 
 # Non-fiction
+
+## Everything Is Here to Help You: A Loving Guide to Your Soul's Evolution
+by Matt Kahn
+
+[Amazon](https://www.amazon.com/Everything-Here-Help-You-Evolution/dp/1401954952/)
 
 ## Mindfulness in Plain English
 by Bhante Henepola Gunaratana

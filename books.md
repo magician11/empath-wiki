@@ -1,5 +1,10 @@
 # Non-fiction
 
+## The Power of Now
+by Eckhart Tolle
+
+[Amazon](https://www.amazon.co.uk/Power-Now-Guide-Spiritual-Enlightenment/dp/0340733500)
+
 ## Conversations with God, books 1 & 2
 by Neale Donald Walsch
 

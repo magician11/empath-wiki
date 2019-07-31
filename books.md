@@ -6,6 +6,11 @@
 
 # Non-fiction
 
+## The Magus of Strovolos: The Extraordinary World of a Spiritual Healer
+by Kyriacos Markides 
+
+[Amazon](https://www.amazon.co.uk/Magus-Strovolos-Extraordinary-Spiritual-Healer/dp/0140190341)
+
 ## The Prophet
 by Kahlil Gibran, جبران خليل جبران
 

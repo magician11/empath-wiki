@@ -1,5 +1,11 @@
 # Non-fiction
 
+## Conversations with God, books 1 & 2
+by Neale Donald Walsch
+
+- [Book 1 on Amazon](https://www.amazon.co.uk/Conversations-God-Book-Uncommon-Dialogue/dp/0340693258)
+- [Book 2 on Amazon](https://www.amazon.co.uk/Conversations-God-Uncommon-Dialogue-Bk-2/dp/0340765445)
+
 ## Destiny of Souls: New Case Studies of Life Between Lives
 by Dr. Michael Newton
 

@@ -6,6 +6,11 @@
 
 # Non-fiction
 
+## Autobiography of a Yogi
+by Paramahansa Yogananda
+
+[Available for free at Ananda](https://www.ananda.org/autobiography/)
+
 ## The Magus of Strovolos: The Extraordinary World of a Spiritual Healer
 by Kyriacos Markides 
 

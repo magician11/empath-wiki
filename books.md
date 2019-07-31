@@ -1,5 +1,10 @@
 # Non-fiction
 
+## The Prophet
+by Kahlil Gibran, جبران خليل جبران
+
+[Goodreads](https://www.goodreads.com/book/show/2547.The_Prophet)
+
 ## The Power of Now
 by Eckhart Tolle
 

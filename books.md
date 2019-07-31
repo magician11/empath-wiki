@@ -1,3 +1,9 @@
+# Index
+
+- [Non fiction](#non-fiction)
+- [Fiction](#fiction)
+- [Other links](#other-links)
+
 # Non-fiction
 
 ## The Prophet

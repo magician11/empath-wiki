@@ -6,6 +6,11 @@
 
 # Non-fiction
 
+## Jonathan Livingston Seagull
+by Richard Bach
+
+[Amazon](https://www.amazon.co.uk/Jonathan-Livingston-Seagull-Richard-Bach/dp/0006490344)
+
 ## Autobiography of a Yogi
 by Paramahansa Yogananda
 

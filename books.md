@@ -6,6 +6,11 @@
 
 # Non-fiction
 
+## The Alchemist
+by Paulo Coelho
+
+[goodreads](https://www.goodreads.com/book/show/865.The_Alchemist)
+
 ## Jonathan Livingston Seagull
 by Richard Bach
 

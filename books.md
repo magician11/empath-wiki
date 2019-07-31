@@ -6,6 +6,11 @@
 
 # Non-fiction
 
+## Mindfulness in Plain English
+by Bhante Henepola Gunaratana
+
+[Amazon](https://www.amazon.co.uk/Mindfulness-Plain-English-20th-Anniversary/dp/0861719069)
+
 ## The Celestine Prophecy
 by James Redfield
 

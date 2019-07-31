@@ -135,3 +135,7 @@ By Chris Cleave
 By Katherine Dunn
 
 [Google Books](https://books.google.co.uk/books/about/Geek_Love.html?id=efJGBQAAQBAJ&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
+
+# Other links
+
+- [Book list from GOING WITHIN](https://201monthsblog.wordpress.com/2019/05/29/books/)

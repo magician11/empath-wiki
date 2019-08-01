@@ -1,7 +1,5 @@
-<!-- TITLE: Narcissism -->
-<!-- SUBTITLE: Information on narcissists and psychopaths -->
-
 It's an unfortunate and common pairing for empaths to get involved in some capacity with narcissists.
+
 # Articles
 ## The Science Behind Psychopaths and Extreme Altruists
 
@@ -93,3 +91,7 @@ A movie about a child who is born a psychopath. His sweet, good hearted mother d
 # Traits
 
 - Narcissists are excellent at hiding that they are a narcissist. They can, for instance, create so much drama around them, that untargeted people mistakenly assume the "bad" person is someone else.
+
+# Videos
+
+- [Narcissism and Its Discontents | Ramani Durvasula | TEDxSedona](https://www.youtube.com/watch?v=aHHWgG7dB6A)

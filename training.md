@@ -335,3 +335,7 @@ In terms of frequency and amplitude these craft are capable of jumping space.
 #### Effects on humans
 
 The gravitational effect surrounding the craft is disruptive to human cell biology. It is unsafe to be exposed for extended periods of time around them.
+
+#### Maneuvering
+
+The craft is maneuvered by a pilot who with the aid of a quantum control crystallizing ball and an AI can move in any direction or speed. The craft can power frequency higher till an opening in fabric of time space occurs and go into space jump. The ball controller is a type of metal that at high frequency and electromagnetic power can transform into a crystal that emits a type of interface for pilot and AI to communicate direction, speed, and path.

@@ -6,6 +6,11 @@ A collection of books that various members have recommended..
 
 # Non-fiction
 
+## Why Marriages Succeed or Fail: And How You Can Make Yours Last
+by John Gottman
+
+[Amazon](https://www.amazon.co.uk/Why-Marriages-Succeed-Fail-Yours/dp/0684802414)
+
 ## Everything Is Here to Help You: A Loving Guide to Your Soul's Evolution
 by Matt Kahn
 

@@ -94,4 +94,4 @@ A movie about a child who is born a psychopath. His sweet, good hearted mother d
 
 # Videos
 
-- [Narcissism and Its Discontents | Ramani Durvasula | TEDxSedona](https://www.youtube.com/watch?v=aHHWgG7dB6A)
+- [Narcissism and Its Discontents - Ramani Durvasula - TEDxSedona](https://www.youtube.com/watch?v=aHHWgG7dB6A)

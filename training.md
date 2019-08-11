@@ -339,3 +339,7 @@ The gravitational effect surrounding the craft is disruptive to human cell biolo
 #### Maneuvering
 
 The craft is maneuvered by a pilot who with the aid of a quantum control crystallizing ball and an AI can move in any direction or speed. The craft can power frequency higher till an opening in fabric of time space occurs and go into space jump. The ball controller is a type of metal that at high frequency and electromagnetic power can transform into a crystal that emits a type of interface for pilot and AI to communicate direction, speed, and path.
+
+#### Communication
+
+They also use a form of [flashbulbing](https://www.youtube.com/watch?v=PlP3bLL3rcA). In parts of space there is high gamma interference. Communications fail. This is back up.

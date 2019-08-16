@@ -342,4 +342,4 @@ The craft is maneuvered by a pilot who with the aid of a quantum control crystal
 
 #### Communication
 
-In addition to using mind transmissions, they also use a form of [flashbulbing](https://www.youtube.com/watch?v=PlP3bLL3rcA). In parts of space there is high gamma interference. Communications fail. This is back up.
+They use system aided telepathy (amplifies thought). If there are gamma radiation bursts (interferes with the systems), gravity influences or injured craft, they can use plasma flashes. This looks like [flashbulbing](https://www.youtube.com/watch?v=PlP3bLL3rcA). These codes are multidimensional. Communications fail. This is back up.

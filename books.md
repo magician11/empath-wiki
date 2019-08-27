@@ -6,6 +6,13 @@ A collection of books that various members have recommended..
 
 # Non-fiction
 
+## The Teachings of Don Juan
+by Carlos Castaneda
+
+>"knowledge is power."
+>
+>"No!" he said emphatically. "Power rests on the kind of knowledge one holds. What is the sense of knowing things that are useless?"
+
 ## Why Marriages Succeed or Fail: And How You Can Make Yours Last
 by John Gottman
 

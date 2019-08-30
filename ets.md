@@ -16,6 +16,7 @@
 - [ET craft passing in front of the sun](https://www.youtube.com/watch?v=tZLsDCuy_7Q)
 - [Invisible Alien Spaceships Are Watching Us (Explanation) Color Night Vision Camera](https://youtu.be/qYsNJMCXHUE)
 - ["UNKNOWN SPACE MACHINES" HIDDEN In Earth's Atmosphere..](https://www.youtube.com/watch?v=Ogc6QWEGPtg)
+- [3 wagons and 6 lights near the sun for portal (information)](https://www.youtube.com/watch?v=jIfeplvPFwk)
 
 ## Evidence of ETs
 

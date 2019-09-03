@@ -343,3 +343,13 @@ The craft is maneuvered by a pilot who with the aid of a quantum control crystal
 #### Communication
 
 They use system aided telepathy (amplifies thought). If there are gamma radiation bursts (interferes with the systems), gravity influences or injured craft, they can use plasma flashes. This looks like [flashbulbing](https://www.youtube.com/watch?v=PlP3bLL3rcA). These codes are multidimensional. Communications fail. This is back up.
+
+### Lesson 19 (who control things)
+
+Who control things are well protected. ETs history with this complex is extensive and well known to them. ET trusted mankind to do the right thing and they betrayed ET (prior to the world wars). Disclosure was supposed to be ET and mankind together to raise us. Now there is a lot of antagonism towards ET from the military industrial complex. We were supposed to evolve and grow up and it hasn't happened. Since 1940 ET has been watching mankind.
+
+[Nodes on the earth](https://www.youtube.com/watch?v=VT6Ni0U0WHM) are electromagnetic conduits that were stable until the poles started shifting. When the axis flips they'll change. This node system is a steady source of electricity for ET. Area 51 protects the life of the craft while they are there.
+
+The craft in area 51 is intelligent and is in bonds.
+
+The industrial complex is about to drop a bomb of a lie and start an interstellar war of biblical proportions.

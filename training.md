@@ -370,6 +370,6 @@ Again, if it feels wrong it's wrong. Keep your own counsel. A world order is bei
 
 Largely ignore David Greer.
 
-planet sized ships
-100-200m ships
-25m that will pick up people
+25m that will pick up people. That will take people to 100-200m sized ships. That will in turn take us to planet sized ships. Humans will try and take them out from scalar weapons. We have scalar weapons in space right now.
+
+

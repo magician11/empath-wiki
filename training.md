@@ -367,3 +367,9 @@ ET when they pick us up will be quick. Like a light flash. They will be fighting
 Genetic memory plays a big part in this. So revelations in the bible is essentially a recall of ET rescuing us in the past.
 
 Again, if it feels wrong it's wrong. Keep your own counsel. A world order is being created.
+
+Largely ignore David Greer.
+
+planet sized ships
+100-200m ships
+25m that will pick up people

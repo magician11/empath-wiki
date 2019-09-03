@@ -353,3 +353,11 @@ Who control things are well protected. ETs history with this complex is extensiv
 The craft in area 51 is intelligent and is in bonds.
 
 The industrial complex is about to drop a bomb of a lie and start an interstellar war of biblical proportions.
+
+### Lesson 20
+
+We have been in contact with ET for a while. And give us some tech to help us along. Mankind is incapable of being honest; dishonest and dellusional bunch. We stabbed ET in the back.. it's an act of war. And it's going to turn into war. We are in the throws of gearing up for full disclosure. Certain preconditions exist for them to disclose. ET will be shown as the bad guy. Hybrids will be taken when this happens.
+
+Humankind has become stupid. It's my planet you cannot have it. We seeded it, get away. It's insane.
+
+The last 50 years we have been imprinted with bad things what will happen when we go with aliens. Only mentally stable people can be taken. Being able to disciminate between good and bad is important. i.e. empaths.

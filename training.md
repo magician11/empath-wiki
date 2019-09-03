@@ -361,3 +361,9 @@ We have been in contact with ET for a while. And give us some tech to help us al
 Humankind has become stupid. It's my planet you cannot have it. We seeded it, get away. It's insane.
 
 The last 50 years we have been imprinted with bad things what will happen when we go with aliens. Only mentally stable people can be taken. Being able to disciminate between good and bad is important. i.e. empaths.
+
+ET when they pick us up will be quick. Like a light flash. They will be fighting against scalar weapons.
+
+Genetic memory plays a big part in this. So revelations in the bible is essentially a recall of ET rescuing us in the past.
+
+Again, if it feels wrong it's wrong. Keep your own counsel. A world order is being created.

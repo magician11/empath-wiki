@@ -1,3 +1,7 @@
+# How to protect yourself from negative energy
+
+Here are a mix of responses and research that might help.
+
 # Watch movies that amp your energy up
 
 ## Wonder Woman
@@ -115,3 +119,4 @@ To clear entities, you need to strengthen yourself spiritually. This will take t
 
 ## Andrew
 - wearing and having crystals close by
+- simply do not engage with negative energy

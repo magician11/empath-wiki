@@ -1,8 +1,3 @@
-<!-- TITLE: Protection -->
-<!-- SUBTITLE: How to protect the energy of an empath -->
-
-* wearing and having crystals close by
-
 # Watch movies that amp your energy up
 
 ## Wonder Woman
@@ -107,6 +102,9 @@ Reiki, course salt, and sage is effective for clearing negative energy that is l
 To clear entities, you need to strengthen yourself spiritually. This will take time. Call on Archangel Michael, and use black tourmaline to protect you and create a shield around you. Show no fear, and demand it to leave. The most important thing is to raise your vibrations. When you do this you literally move into another dimension to them, and dark energies cannot connect with you then. Also connect with your spiritual guides and angels; they are here to protect and guide you on your path in this life.
 
 # Personal learnings
+
+## Maria
+
 1. I finally learned and accepted that I CAN'T CHANGE PEOPLE, and I learned to respect their personal journey.
 2. But I also learned that what I can control (partially) is to choose those who surround me, and if I don't have control there (let's say, family  colleagues), I can control how often and how much of my time I spend with them and with every person.
 3. I try to prioritize my wellbeing and my body needs. And I try to respect the time that my body requires to recharge.
@@ -114,3 +112,6 @@ To clear entities, you need to strengthen yourself spiritually. This will take t
 5. I have learned about my boundaries and try to respect.
 6. I tend to fall into over complascency and over generosity. A friend of mine told me many years ago: "you have an beautiful uthopical world in your head. But this society has its own rules. Stick to those for your own sake". She was right. I know now with whom I can be freely giving and open, and with whom I have to stick to the world's rules. I am always kind and helpful, but I won't let anyone take advantage of me anymore.
 7. I try to follow my intuition. I try to do, say and be what my hearts tells me to be AS LONG AS I AM GROUNDED. If I am not grounded, I don't do/say anything. Better to wait. The world can wait.
+
+## Andrew
+- wearing and having crystals close by

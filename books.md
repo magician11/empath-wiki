@@ -195,6 +195,13 @@ By Yann Martel
 
 [Google Books](https://books.google.co.uk/books/about/Life_Of_Pi.html?id=XJNFfSzGD0AC&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
 
+## The Absolutely True Diary of a Part-Time Indian
+by Sherman Alexie
+
+Sherman Alexie tells the story of Junior, a budding cartoonist growing up on the Spokane Indian Reservation. Determined to take his future into his own hands, Junior leaves his troubled school on the rez to attend an all-white farm town high school where the only other Indian is the school mascot.
+
+[goodreads](https://www.goodreads.com/book/show/693208.The_Absolutely_True_Diary_of_a_Part_Time_Indian)
+
 ## The Other Hand
 By Chris Cleave
 

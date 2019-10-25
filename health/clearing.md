@@ -1,7 +1,13 @@
-<!-- TITLE: Clearing -->
-<!-- SUBTITLE: How to clear out stress and negative energies -->
 
-## Letting go
+# Clearing your own energy
+
+## The elements
+
+> saltwater baths for the feet are good for cleansing energy and grounding (or saltwater baths in general). a follow-up w rose oil of some sort is also good, so i've been doing rose oil in my hair when i wash. the "chop, brush, fluff" method of aura cleansing- which i definitely have to do more of and should really do over running water as well so the water can carry the energy away. a pool (a couple) and a sauna and whirlpool too- i think the more water, the better.
+
+> wind is also very good for me. the very best thing is to go to the beach- regardless of weather- and stick your feet in the salt water there. walk along the edge, feel the sand and water and wind, hope for a glimpse of sun...maybe i'll get up early on sun w my friend who's going to be visiting for the weekend and we can get to the beach before any one else does, when there's plenty of parking, few dogs and lots of good ocean and birds! 
+
+## Other ideas
 
 How to release the stress in yourself so you can rest and sleep well at night.
 
@@ -16,7 +22,7 @@ How to release the stress in yourself so you can rest and sleep well at night.
 
 
 
-## Clearing a space/room
+# Clearing a space/room
 
 You can clear things via intuition:
 

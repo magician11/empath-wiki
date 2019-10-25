@@ -222,6 +222,11 @@ by Madeleine L'Engle
 
 [goodreads](https://www.goodreads.com/book/show/33574273-a-wrinkle-in-time)
 
+## Red Sparrow
+by Jason Matthews 
+
+[Amazon](https://www.amazon.com/Red-Sparrow-Novel-Trilogy/dp/1476706123)
+
 # Other links
 
 - [Book list from GOING WITHIN](https://201monthsblog.wordpress.com/2019/05/29/books/)

@@ -212,12 +212,15 @@ By George Orwell
 
 [Amazon](https://www.amazon.com/gp/product/0451524934/ref=dbs_a_def_rwt_bibl_vppi_i0)
 
-[Google Books](https://books.google.co.uk/books/about/The_Other_Hand.html?id=p2mpvegbw0AC&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
-
 ## Geek Love
 By Katherine Dunn
 
 [Google Books](https://books.google.co.uk/books/about/Geek_Love.html?id=efJGBQAAQBAJ&printsec=frontcover&source=kp_read_button&redir_esc=y#v=onepage&q&f=false)
+
+## A Wrinkle in Time
+by Madeleine L'Engle
+
+[goodreads](https://www.goodreads.com/book/show/33574273-a-wrinkle-in-time)
 
 # Other links
 

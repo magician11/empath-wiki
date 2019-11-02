@@ -42,3 +42,6 @@
 ## Interviews
 
 - [Alien Contactee Sherry Wilde Talks About Her Close Encounter](https://www.youtube.com/watch?v=MXfJLrJgFr4)
+
+## Talks
+- [Stanton Friedman](https://www.youtube.com/watch?v=IIC44rOSGrk)

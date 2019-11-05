@@ -1,5 +1,8 @@
-<!-- TITLE: Healing -->
-<!-- SUBTITLE: Resources on healing -->
+There are a number of ways you can heal yourself.
+
+# Food
+
+- Watch [Forks Over Knives: The Documentary Feature](https://www.forksoverknives.com/the-film/#gs.e4ps4t)
 
 
 # Essential oils

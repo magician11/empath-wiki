@@ -46,3 +46,6 @@
 
 ## Talks
 - [Stanton Friedman](https://www.youtube.com/watch?v=IIC44rOSGrk)
+
+## sites to join
+- [Gaia](https://www.gaia.com)

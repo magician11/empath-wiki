@@ -95,3 +95,9 @@ A movie about a child who is born a psychopath. His sweet, good hearted mother d
 # Videos
 
 - [Narcissism and Its Discontents - Ramani Durvasula - TEDxSedona](https://www.youtube.com/watch?v=aHHWgG7dB6A)
+
+# How to deal with narcissists
+
+- If at all possible avoid them
+- If the narcissists persist in connecting with you, use [the gray rock method](https://180rule.com/the-gray-rock-method-of-dealing-with-psychopaths/).
+- If you have to live or spend time with a narcissist, bring all your energy in to your skin level while praciticing the gray rock method.
